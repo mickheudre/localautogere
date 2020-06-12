@@ -1,6 +1,5 @@
 ---
 titre: Biblioblique
-image: local.png
 ---
 
 La biblioblique existe depuis 2004.  
