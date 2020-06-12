@@ -9,122 +9,132 @@ Concert de SEB and the rhâââ dicks (one man punk rock band de Lyon).
 apéro & petite bouffe vegan  
 entrée à prix libre
 
-
 **Samedi 22 février 14h00**  
 Brocante-échanges de disques vinyles/K7/CDs à petit prix ou en troc.  
 Petite bouffe vegan thé-café-chicorée.  
-*Si vous voulez venir avec vos disques, contactez-nous à lokal_autogere(at)no-log.org*
-
+_Si vous voulez venir avec vos disques, contactez-nous à lokal_autogere(at)no-log.org_
 
 ## 2019
+
 **Mercredi 15 mai**  
 Présentation du livre "le pari de l'autonomie"
 
 **Samedi 6 avril**  
 Friperie gratos, amenez des fringues et venez en récupérer!
-de 14h à 17h. 
+de 14h à 17h.
 
 **Vendredi 1er fevrier à 19h**  
 Vernissage de l'exposition de lashka (saint etienne). bouffe et boissons  
-*"Entre humour et  dégoût pour ce monde, Lashka dessine souvent des meufs et des gars abimés, punks et freaks à tendance crades voire quasi zombifiés mais quand même contents, qu’ils soient seuls dans leur piaule, zonant ensemble dans des pièces collectives, ou affrontant la police entre deux canettes, en attendant la fin du monde."*
+_"Entre humour et  dégoût pour ce monde, Lashka dessine souvent des meufs et des gars abimés, punks et freaks à tendance crades voire quasi zombifiés mais quand même contents, qu’ils soient seuls dans leur piaule, zonant ensemble dans des pièces collectives, ou affrontant la police entre deux canettes, en attendant la fin du monde."_
 
 **Lundi 21 janvier à 19h**  
 Projection de "hedera"  
-*"6 films qui regroupent des témoignages de vécus collectifs, dont le lien se situe dans les dynamiques anarchistes actuelles.Une histoire d'un an de rencontres où nous avons pu partager nos choix et expériences de luttes, mais aussi nos déceptions.  
+_"6 films qui regroupent des témoignages de vécus collectifs, dont le lien se situe dans les dynamiques anarchistes actuelles.Une histoire d'un an de rencontres où nous avons pu partager nos choix et expériences de luttes, mais aussi nos déceptions.  
 Ca cause de luttes sociales, de féminisme, de luttes trans, d'autonomie, de squat, de punk..."  
-petite bouffe à 19h, proj à 20h. en présence d'une des personne ayant participé au projet. (les films suivants seront projetés le lendemain à la baf et le surledemain au 102, aux meme heures).*
+petite bouffe à 19h, proj à 20h. en présence d'une des personne ayant participé au projet. (les films suivants seront projetés le lendemain à la baf et le surledemain au 102, aux meme heures)._
 
 **Venredi 18 janvier à 19h (au 102)**  
 Concert de soutien au local autogéré, avec alarm, ascidie et taulard  
-*au 102 rue d'alembert. prix libre en soutien.*  
-*bouffe 19h musique 20h fin 23h.*
+_au 102 rue d'alembert. prix libre en soutien._  
+_bouffe 19h musique 20h fin 23h._
 
 **Samedi 5 janvier à 15h**  
 Las vegan fête la sortie du fanzine de recettes du vegan fest qui avait eu lieu au roxy cooper en 2016. Bouffe par las vegan, fanzine gratos.
+
 ## 2018
 
+**Samedi 1er décembre** **à 17h**  
+Ouverture de la fanzinothèque, regroupant les archives zines de la scène punk/diy/féministe/squat grenobloise
 
-samedi 1er décembre: à 17h, ouverture de la fanzinothèque, regroupant les archives 
-zines de la scène punk/diy/féministe/squat grenobloise
+**Samedi 17 novembre à 14h  
+**Atelier couture de serviettes hygiéniques lavables
 
-samedi 17 novembre: à 14h, atelier couture de serviettes hygiéniques lavables
+**Mercredi 7 novembre à 17h**_  
+_Vernissage de l'expo de gravures "nuit sur l'Allemagne", de clément moreau, sur la montée du nazisme dans les années 30.
 
-mercredi 7 novembre: à 17h, vernissage de l'expo de gravures "nuit sur l'Allemagne",
-de clément moreau, sur la montée du nazisme dans les années 30.
+**Mardi 6 novembre à 18h**  
+Revue de presse contre les frontières
 
-mardi 6 novembre: à 18h, revue de presse contre les frontières
+**Mardi 16 octobre à 19h**  
+Sortie du zine "ligne point mur", fanzine littéraire
 
-mardi 16 octobre: à 19h, sortie du zine "ligne point mur", fanzine littéraire
+**Mardi 9 octobre à 18h**  
+Apéro concert avec DRYWUD (rap/noise/electro).   
+_Fin du son à 20h max._
 
-mardi 9 octobre: à 18h, apéro concert avec DRYWUD (rap/noise/electro).
-fin du son à 20h max.
+**Samedi 6 octobre à 14h**  
+Friperie gratuite. amenez/récupérez des fringues
 
-samedi 6 octobre: à 14h, friperie gratuite. amenez/récupérez des fringues
+**Mardi 2 octobre à 18h**  
+Revue de presse contre les frontière
 
-mardi 2 octobre: à 18h, revue de presse contre les frontière
+**Mercredi 4 juillet à 18h**  
+Présentation du roman graphique "quartier en guerre" à 20h, apéro mix de fin d'année
 
-mercredi 4 juillet: à 18h, présentation du roman graphique "quartier en guerre"
-à 20h, apéro mix de fin d'année
+**Mercredi 6 juin à 19h**  
+Exposition de sérigraphies tirées de la bd "quartiers en guerre" de seth tobocman
 
-mercredi 6 juin: à 19h, exposition de sérigraphies tirées de la bd
-"quartiers en guerre" de seth tobocman
+**Mardi 5 juin à 18h**  
+Revue de presses contre les frontières
 
-mardi 5 juin: à 18h, revue de presses contre les frontières
+**Dimanche 27 mai de 14h à 17h**  
+Aprem echange de plantes. venez partager vos plans/plantes/graines
 
-dimanche 27 mai de 14h à 17h: aprem echange de plantes. venez partager 
-vos plans/plantes/graines
+**Vendredi 18 mai à 18h30**  
+Discussion/proj autour de la situation à calais avec un camarade qui à passé du temps sur place.
 
-vendredi 18 mai à 18h30: discussion/proj autour de la situation à calais avec un 
-camarade qui à passé du temps sur place.
+**Dimanche 29 avril à 19h**  
+Suite du cycle cinéma "vengeance". projection de "lady vengeance" (corée).
 
-dimanche 29 avril à 19h: suite du cycle cinéma "vengeance". 
-projection de "lady vengeance" (corée).
+**Samedi 21 avril à 14h**  
+Friperie gratuite deuxième édition, amenez vos fringues à echanger/donner.  
+_thé, café, gateaux_
 
-samedi 21 avril à 14h: friperie gratuite deuxième édition, amenez vos
-fringues à echanger/donner. thé, café, gateaux
+**Jeudi 19 avril à 19h**  
+Concert de "mentira" (synthwave, sao paulo/barcelone)
 
-jeudi 19 avril à 19h: concert de "mentira" (synthwave, sao paulo/barcelone)
+**Dimanche 8 avril à 19h**  
+Projection de "instrument", documentaire sur fugazi
 
-dimanche 8 avril à 19h: projection de "instrument", documentaire sur fugazi
+**Mardi 4 avril à 18h**  
+Revue de presse contre les frontières
 
-mardi 4 avril à 18h: revue de presse contre les frontières
+**Samedi 24 mars à 15h**  
+Présentation du livre "off the map, tribulations de deux vagabondes anarchistes" en présence de l'éditeur
 
-samedi 24 mars à 15h: présentation du livre "off the map, 
-tribulations de deux vagabondes anarchistes" en présence de l'éditeur
+**Mardi 6 mars à 18h**  
+Revue de presse contre les frontières
 
-mardi 6 mars 18h: revue de presse contre les frontières
+**Jeudi 1er mars à20h**  
+Café polyamoureux
 
-jeudi 1er mars 20h: café polyamoureux
+**Jeudi 22 fevrier à 19h**  
+Vernissage l'exposition d'IVAN BRUN: entrée libre.   
+_L'expo sera ensuite visible durant les perms._
 
-exposition IVAN BRUN:
-vernissage le jeudi 22 fevrier à 19h. entrée libre. 
-l'expo sera ensuite visible durant les perms. 
+**Dimanche 21 janvier à 19h**  
+Ciné club du local. _cycle "vengeance"_ première séance  
 
-ciné club du local. cycle "vengeance"
-première séance dimanche 21 janvier 2018 à 19h.
-puis jeudi 1er février et vendredi 16 fevrier même heure.
+**Samedi 6 Janvier**  
+Friperie gratuite de 14h à 18h, amenez vos fringues a donner/echanger!  
+_Gateaux thé café etc..._
 
-
-samedi 6 janvier 2018: 
-friperie gratuite de 14h à 18h, amenez vos fringues a donner/echanger! gateaux thé café etc...
-
----
 
 ## 2017
 
 vendredi 29 décembre à 20h00:
-Nous avons le plaisir de recevoir michelle garza, cinéaste et musicienne, qui viendra nous présenter deux de ses 
+Nous avons le plaisir de recevoir michelle garza, cinéaste et musicienne, qui viendra nous présenter deux de ses
 courts-métrages réalisés en 2014 et 2016 au mexique (+d'autres surprises). nous proposons ensuite une discussion
-autour de son travail et des féminicides au mexique. 
+autour de son travail et des féminicides au mexique.
 20h apéro vegan 21h début des projs.
 
-merccredi 6 décembre à 19h: 
-[cycle de discutaille de la Biblioblique, saison 1, épisode 2]
-RDV au Local Autogéré le mercredi 6 décembre à 19h pour une discussion autour du livre 
+merccredi 6 décembre à 19h:
+\[cycle de discutaille de la Biblioblique, saison 1, épisode 2\]
+RDV au Local Autogéré le mercredi 6 décembre à 19h pour une discussion autour du livre
 "Ecopunk. Les punks, de la cause animale à l’écologie radicale", en présence de Dom Blake, co-auteur.
-      
+
 lundi 9 octobre:
-renconctre autour du livre 
+renconctre autour du livre
 "milot l'incorrigible" (plus d'infos à venir)
 
 jeudi 28 septembre:
@@ -135,13 +145,14 @@ Rencontre autour du recueil Entre un néant et un autre -- vingt nouvelles
 extraites du fanzine Ratcharge --
 fraichement (re)publié aux Éditions des mondes à faire. Des histoires de zone acide, de rouille suburbaine
 et de combat pour la vie, taillées sur mesure pour les adeptes de Bukowski, de Maximum Rock'n'roll et des
-clochards célestes d'hier comme aujourd'hui. 
+clochards célestes d'hier comme aujourd'hui.
 Au programme >>> une présentation par l'auteur et une lecture par un acteur
 (qu'on espère) talentueux
-+ apéro de fin d'année du local, mix dj, boissons et ambiance festive ++
+
+* apéro de fin d'année du local, mix dj, boissons et ambiance festive ++
 
 samedi 10 juin 2017 à 15h:
-presentation et projection sur les luttes et la répression au bakur 
+presentation et projection sur les luttes et la répression au bakur
 (kurdistan du nord ouest, turquie), avec des militant-e-s de retour du kurdistan
 15h: début de la présentation
 17h: projection d'une fiction turque sur la répression au bakur
@@ -160,23 +171,22 @@ bouffe/musique
 Jeudi 30 mars 2017 à 19h00:
 apéro de sortie de la compil four 4 "synthetiseur 1"
 
-
 Jeudi 19 janvier 2017 à 18h: LXS AUSENTES, vernissage expo
 LXS AUSENTES série de portraits autour de l’abstention durant les présidentielles mexicaines en 2012
 
 Présentation des linogravures et du fanzine qui resteront exposés durant un mois au Local Autogéré
 Petits fours, muffins et autres amuses-gueules vegan à prix libre
 Entrée libre
-dimanche 15 janvier : seconde moitié. 
-En revenant sur tous les grands événements de l’histoire sociale des deux derniers siècles, ce documentaire dévoile l’origine et le destin de ce courant politique. 
-À partir d’images d’archives inédites ou oubliées, de témoignages et de documents exceptionnels, cette série documentaire raconte l’histoire d’un mouvement qui, de Paris à New York et de Tokyo à Buenos Aires, n’a eu de cesse de souffler son vent de liberté et de révolte sur le monde. 
-à partir de 18h, durée de la séance : 90min 
-un peu de bouffe vegan et d’ouverture de bar avant le film 
+dimanche 15 janvier : seconde moitié.
+En revenant sur tous les grands événements de l’histoire sociale des deux derniers siècles, ce documentaire dévoile l’origine et le destin de ce courant politique.
+À partir d’images d’archives inédites ou oubliées, de témoignages et de documents exceptionnels, cette série documentaire raconte l’histoire d’un mouvement qui, de Paris à New York et de Tokyo à Buenos Aires, n’a eu de cesse de souffler son vent de liberté et de révolte sur le monde.
+à partir de 18h, durée de la séance : 90min
+un peu de bouffe vegan et d’ouverture de bar avant le film
 
 Dimanche 8 janvier 2017 à 18h00
 Projection d’un documentaire (récent) au local autogéré sur l’histoire de l’anarchisme.
 
----
+***
 
 ## 2016
 
@@ -188,21 +198,18 @@ fond de notre bibliothèque, emprunts et dons possibles, et même souhaités
 dès 18h : concert : GIZMEDIUM (anarcho-folk-punk / Côte d’Azur) + MICHEL31
 (drone / st-bru)
 
-
-
 jeudi 7 juillet à 19h
 apéro musical de fin de saison.
-
 
 mercredi 8 juin à partir de 19h
 discussion - les enjeux d'internet
 des personnes des collectifs Grésille et Rézine viendront discuter des enjeux d'internet autour de deux notions:
-- la neutralité du réseau et l'acentralisation d'internet
-- la maîtrise que l'on a de nos donées (personnelles et productions)
 
+* la neutralité du réseau et l'acentralisation d'internet
+* la maîtrise que l'on a de nos donées (personnelles et productions)
 
 3 jours pour fêter les 10 ans du local autogéré
-samedi 14 mai 
+samedi 14 mai
 14h - atelier cuisine vegan
 venez cuisiner avec nous des nuggets de seitan, des petits fours et des desserts...
 à partir de 18h
@@ -220,11 +227,9 @@ jeudi 12 mai à 19h
 "projection d'un documentaire et discussions autour de la revue de presse frontières et politique migratoire européenne.
 Pourquoi on se propose ce temps, les lectures, échanges et analyses qu'on tente d'y faire, avec le collectif du grezo."
 
-
 samedi 30 avril à 19h
 la chorale des dissidents - chants révolutionnaires
 dj loafazo - mix de la yaute
-
 
 ciné-club - théma femmes/futurs
 dimanche 27 mars
@@ -233,10 +238,8 @@ the handmaid's tale, volker schlöndorff (1990 - 109')
 
 repas vegan à 19h et projection à 20h30
 
-
 samedi 19 mars à 17h
 apéro pour la sortie du maximum cuvette numéro 5!
-
 
 ciné-club - théma femmes/futurs
 jeudi 10 mars
@@ -244,7 +247,6 @@ tank girl, rachel talalay (1995 - 104')
 "2033. Après une catastrophe d'ordre mondial, la Terre n'est plus qu'un immense désert et l'eau devient le trésor le plus convoité. Dans ce no man's land peuplé de mutants, une jeune fille au look punk surnommée "Tank Girl", accompagnée de ses fidèles, tente de mettre à mal le système mis en place par un certain Kessler qui règne sur l'empire de l'eau et en gère la distribution à travers son entreprise "Water and Power"..."
 
 repas vegan à 19h et projection à 20h30
-
 
 ciné-club - théma femmes/futurs
 repas vegan à 19h et projection à 20h30
@@ -257,11 +259,9 @@ dimanche 28 février
 the stepford wives, bryan forbes (1975 - 115')
 "dans la petite ville de Stepford, les femmes sont entièrement soumises à leurs paresseux maris : elles s'occupent volontiers de toutes les tâches ménagères et font preuve d'un manque flagrant d'intelligence, alors que les hommes prennent toutes les décisions. Joanna et son amie Bobbie, s'inquiétant de cet état de fait, commencent à mener l'enquête. Elles ne sont pas au bout de leurs surprises... "
 
----
+***
 
 ## 2015
-
-
 
 samedi 14 novembre
 16h vide ton bac
@@ -269,16 +269,13 @@ amène tes disques, à donner, échanger, vendre...
 19h apéromix
 dj thom et mick
 
-
 jeudi 29 octobre à 20h
 concert
 marisa anderson (folkblues des states) + ?? .
 comme d'hab il ya aura du miam vegan, à boire et on fera tourner un chapeau pour le défraiement des groupes.
 
-
 dimanche 5 juillet à 19h
 apéro concert de fin d'année avec gizmedium (folkpunk du sud) + banjoraf (banjo d'ici).
-
 
 ATTENTION CHANGEMENT DE DATE: jeudi 18 juin (au lieu de vendredi 19 juin) à 19h
 ciné-club
@@ -286,22 +283,18 @@ g.a.r.i! de nicolas reglat (france-2013)
 espagne, septembre 1973. cinq membres du m.i.l (mouvement ibérique de libération) risquent d'être condamnés à mort par la justice franquiste.
 en france, plusieurs groupes d'activistes décident alors d'unir leurs forces dans un réseau appelé g.a.r.i (groupe d'actions révolutionnaire internationalistes).
 
-
 dimanche 7 juin à 19h
 ciné-club
 calle santa fe de carmen castillo (chili-1997)
 l'engagement politique, au plus près de la vérité d'une femme chilienne, carmen castillo, qui survit à son compagnon, miguel enriquez, chef de la résistance contre la dictature de pinochet, mort au combat, rue santa fe, dans les faubourgs de santiago du chili, le 5 octobre 1974.
 
-
 mardi 26 mai à 18h00
-concert avec beyond the borders 
+concert avec beyond the borders
 groupe letton habitant à barcelone, qui entame une deuxième tournée pour récolter des fonds, pour acheter des vélos pour les enfants d'un orphelinat à Egrgeme en lettonie. le groupe présentera plus en détail son projet.
 le concert attaquera à 19h précise pour le bien-être de nos voisins, leur musique n'étant pas vraiment accoustique!
 
-
 samedi 23 mai à 19h
 le retour de l'apéro musical! c'est dj pp qui s'y colle (à rustine).
-
 
 vendredi 10 avril à 18h
 rencontre et vernissage pour la sortie de "de l'autre côté, histoire de l'immigration maghrébine".
@@ -309,17 +302,14 @@ une douzaine de planches sérigraphiées tirées du livre de coline picaud. l'ex
 "Cette bande dessinée de reportage réunit des témoignages de Maghrébins venus s'installer en France, plus précisément à Grenoble.
 A travers leur voix se racontent et se dessinent plusieurs époques : les Trente Glorieuses marquées par les luttes sociales et politiques, et la période actuelle avec des récits de personnes arrivées en France dans la dernière décennies. Ces histoires de Tunisiens, Marocains et Algériens ont en commun l'amertume de l'exil et le rêve d'une vie meilleure."
 
-
 samedi 28 février à 19h
 concert hors-les-murs au 102 (rue d'alembert)
 mr.martin et manuel (blues de punk - grrr) + bloc (nyhc - annecy). après quasi 20 ans de silence, le quatuor se reforme et s'arrêtera à grenoble pour clore sa triomphale tournée du pays dauphinois + zero gain (punkrock - sainté).
-
 
 jeudi 12 février à 19h
 rencontre + discussion
 Féminismes et luttes diverses, quelles interférences, quels enrichissements, quelles ruptures?
 Les dynamiques et les luttes féministes à Grenoble sont fortes depuis longtemps. Que portent-elles? Que nous apportent-elles sur d'autres terrains? Par rapport aux réflexions, pratiques et analyses, quels sont leurs regards, analyses et évolutions?
-
 
 samedi 31 janvier à 17h
 projection + discussion
@@ -331,7 +321,7 @@ Tourisme : consommation ou exploration du monde ?
 Le tourisme est-il réellement cette industrie vertueuse œuvrant pour le  meilleur des mondes ? Ou a t-il pour vocation de rendre supportable une  existence devenue invivable ?
 Rodolphe Christin, auteur de "L'Usure du monde, critique de la déraison  touristique" (L'Echappée, 2014), propose une approche critique du phénomène touristique.
 
----
+***
 
 ## 2014
 
@@ -339,29 +329,24 @@ lundi 22 décembre à 18h
 radios libres, féminisme et autogestion à barcelone
 présentations, projections et discussions avec des membres de radio bronka (27 ans d'autogestion sur les ondes) et rebeldes sin sombra (émission féministe).
 
-
 dimanche 14 décembre à 19h30
 ciné-club - théma punk
 "don't need you: the herstory of riot grrr - kerri koch - 40mn - usa - 2005
 Un documentaire retraçant les débuts du mouvement Riot Grrrl sur la scème musicale indépendante des années 90, aux USA. On y voit comment le mouvement féministe est devenu un réseau révolutionnaire underground dédié aux femmes et basé sur la musique, l'écriture et le militantisme.
 
-
 vendredi 5 décembre à 19h
 discussion sur les éditions militantes
 pourquoi, quel contenu, comment, pour qui, quelles alternatives au marché du livre peut-on mettre en place?
-
 
 ANNULE !  samedi 22 novembre à 19h30  ANNULE !
 concert hors-les-murs au 102 (rue d'alembert) - prix libre
 mr martin, le lion néron et le tigre agir (blues de punk - grrr) + 2 autres groupes (les noms tout bientôt).
 y aura des distros, du miam vegan...
 
-
 dimanche 16 novembre à 19h
 ciné-club - théma punk
 "noise & resistance" - francesca airaza andrade et julia ostertag - 87mn - allemagne - 2011
 "ll y a d’autres moyens. Commerce, capital et consommation ne sont pas des besoins irrévocables du monde d’aujourd’hui." A travers ce documentaire percutant, Francesca Araiza Andrade et Julia Ostertag montrent que nombreux sont ceux qui en sont convaincus. Ceux-ci, souvent catalogués comme des perturbateurs et des producteurs de nuisances sonores, s’avèrent être des éléments de résistance indispensables. Ici, le punk n’est ni une mode dépassée, ni une relique poussiéreuse, mais l’expression d’un mode de vie. Les réalisatrices se sont immiscées au coeur d’une scène rebelle aussi expressive que dynamique...
-
 
 samedi 18 octobre à 17h
 discussion - center parcs et le tourisme
@@ -370,22 +355,18 @@ Après l’avis défavorable émis par la  commission d’enquête publique conc
 (1): Auteur de Chambard dans les Chambarans – S’opposer à Center Parcs et à la marchandisation du monde, Le Monde à l’envers, 2011.
 (2): Auteur du Manuel de l’antitourisme, Yago, 2008 et de L’Usure du monde – Critique de la déraison touristique, L’Échappée, 2014.
 
-
 dimanche 12 octobre à 19h
 ciné-club - théma punk
 "the punk syndrome" - jukka kärkkäinen et j-p passi - 85mn - finlande - 2012
 le quotidien de Pertti Kurikan nimipäivät. les quatre membres du groupe sont handicapés mentaux. Ils jouent leur musique avec fierté et conviction. on suit le groupe de la salle de répétition à la scène. Ils aiment, ils boivent, ils se disputent. on prend la mesure du mouvement punk : la réponse des rejetés de la société, un véritable coup de pied dans les valeurs établies et les idées reçues.
 
-
 samedi 27 septembre à 16h
 braderie / apéro musical
 vu le succès de la première édition, on remet ça. braderie (cd's, vinyls, zines, brochures...) + mix avec mr. nada.
 
-
 jeudi 10 juillet à 19h
 apéromix de fin d'année
 c'est dj narta qui s'y colle (90's passion).
-
 
 dimanche 22  juin à 19h
 ciné-club
@@ -395,19 +376,18 @@ Progressivement, la situation se détériore, la frontière entre l'expérience 
 
 miam vegan après la projection.
 
-
 vendredi 16 mai
 journée de soutien à l'abc bièlorusse et au local autogéré à la baf (2 chemin des alpins)
 18h: discussion/débat avec l'abc:
-- la situation actuelle du mouvement anarchiste en bièlorussie.
-- la situation actuelle de la répression en bièlorussie.
-- la semaine de solidarité avec les prisonniers anarchistes.
-discussion sur "l'antirépression et le travail de solidarité au sein du mouvement anarchiste".
-écriture de lettres et de cartes postale.
-20h30: concert
-os replicantes (punkrock légende do brazil) + Bozhe moÏ! Orkestra (surf - grrr)
-y aura du miam vegan
 
+* la situation actuelle du mouvement anarchiste en bièlorussie.
+* la situation actuelle de la répression en bièlorussie.
+* la semaine de solidarité avec les prisonniers anarchistes.
+  discussion sur "l'antirépression et le travail de solidarité au sein du mouvement anarchiste".
+  écriture de lettres et de cartes postale.
+  20h30: concert
+  os replicantes (punkrock légende do brazil) + Bozhe moÏ! Orkestra (surf - grrr)
+  y aura du miam vegan
 
 samedi 3 mai à 20h
 lectures insulaires de la cie sisMa:
@@ -417,31 +397,25 @@ c’est une île le temps de la lecture et plus si affinités
 c’est autour, sur, en plein dans, centré sur la marge
 c’est des mouettes, du jeu et trois insulaires
 
-
 dimanche 27 avril à 19h
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-
 mercredi 9 avril à 19h
-concert 
+concert
 craig sutton aka the flamenco thief (flamenco with loops).
-
 
 dimanche 6 avril à 19h
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-
 dimanche 30 mars à 19h
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-
 samedi 29 mars à 19h
 apéro vernissage de l'expo "barbie n'existe pas" d' aurélien benoist.
 gravures et sérigraphies sur l'image que renvoie barbie dans notre société.
-
 
 jeudi 27 mars à 18h
 Stratégies de lutte animalistes
@@ -449,16 +423,13 @@ Début février, le local recevait l'ex-Scalp Reflex-Paris à propos de son text
 Y sont en effet décrites deux stratégies de lutte bien différentes : la conversion individuelle et le débat public. Ces deux tendances ne sont pas l'apanage des mouvements pro-animaux mais traversent bien souvent toutes les luttes sociales et politiques. Il nous semble donc important d'y revenir ce soir en présence de militants de la cause animale.
 La soirée-discussion présentera différentes actions et stratégies de lutte qui animent ces dernières années les mouvement animaliste et sera l'occasion d'échanger sur les limites ou le potentiel de nos pratiques dans nos propres luttes (féministes, anticarcérales, anticapitalistes, antitechno...).
 
-
 dimanche 16 mars à 19h
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-
 jeudi 27 février à 19h
 apéro mix sans alcool
 c'est dj manu qui s'y colle pour cette fois. non, il n'y aura pas que de la surf music...
-
 
 mercredi 12 février à 19h
 soirée en soutien à l'envolée - projection + musique
@@ -466,7 +437,6 @@ enfermés vivants de felix gonzalez-debats (90')
 "2 anciens prisonniers et un acteur sont invités dans un décor de cellule.
 Tout les 3 vont jouer dans une fiction racontant le quotidien de 2 taulards chamboulé par la venue de Jean, « l’arrivant ».
 Ben et Franc ont vécu une incarcération différente mais tout aussi difficile. Ils se livreront tantôt avec spontanéité, tantôt avec recul, en allant d’anecdotes en réflexions théoriques. Jean se nourrira de cette rencontre pour renforcer son personnage fictionnel, mais également pour se forger sa propre opinion sur la prison…"
-
 
 vendredi 7 février à 19h
 réflexions et perspectives sur les luttes radicales
@@ -483,7 +453,7 @@ the blackpower mixtape 1967-1975 de goran olsson(2011-93')
 
 miam vegan après la projection.
 
----
+***
 
 ## 2013
 
@@ -491,40 +461,33 @@ jeudi 19 décembre à 19h
 apéromix
 dj tom nous proposera ses meilleurs morceaux de noël.
 
-
 dimanche 15 décembre à 19h
 ciné-club
 this is not california - marten piersel (95')
 filmé comme un documentaire, ce film retrace l'émergence de la culture lié au skate en allemagne de l'est au début des années 80.
-
 
 dimanche 17 novembre à 19h
 ciné-club
 the gladiators - peter watkins (1969 - 69')
 "Les plus grandes puissances internationales, alignées  et non-alignées , craignant la possibilité d'une nouvelle guerre mondiale, décident de l'empêcher en canalisant les pulsions agressives de l'homme. Elles forment une Commission Internationale qui s'emploie à organiser des combats entre des soldats de différents pays. Ces compétitions, qui peuvent aller jusqu'à la mort, sont appelées Jeux de la Paix - elles sont sponsorisées et retransmises par satellite dans le monde entier. Le film se concentre sur le Jeu 256, qui se déroule dans le Centre International des Jeux de la Paix près deStockholm, sous le contrôle d'un puissant ordinateur. Les arbitres décident d'éliminer un homme et une femme appartenant à des équipes opposées mais qui tentent de s'approcher, considérant qu'ils mettent ainsi en danger la stabilité du système."
 
-
-samedi 19 octobre 
+samedi 19 octobre
 concert hors-les-murs au 102 (rue d'alembert) en soutien au local autogéré
 19h: repas vegan
 20h: concert avec inner conflict (punkrock mélodique - germoney) + chicken's call (melodic @punk - grrr).
-
 
 samedi 5 octobre à 16h
 braderie / apéro musical
 on vous invite à notre première braderie (cd's, vinyls, zines, brochures...). c'est dj bang sue qui animera la partie musicale de cette journée.
 
-
-vendredi 5 juillet 
+vendredi 5 juillet
 concert hors-les-murs au 102 (rue d'alembert) en soutien au local autogéré
 19h: repas vegan
 20h: concert avec tuna (punkrock - brésil) + torino (punkrock - lyon)  + plaine crasse (@punk - grrr)
 
-
 jeudi 20 juin à 19h
 apéro musical
 concert accoustique avec giz medium (punkfolk - nice)  et alpes à lâche (banjo + voix) . ça sera l'occasion de faire le traditionnel apéro avant la fermeture estivale.
-
 
 vendredi 14 juin à 14h
 dans le cadre du festival: c'est l'anarchie!  atelier d'écriture
@@ -532,22 +495,18 @@ oubliez l'angoisse des dissertations et venez partager un moment ludique pour ex
 des contraintes simples et accessibles. une autre manière de dire et de penser ensemble le monde que nous voulons.
 (de 14h à 17h en mixité).
 
-
 samedi 8 juin à 19h
 rencontre avec sea shepherd
 projections (extrait de "shark water"-10mn  et "30 ans de combat"- 30mn) et discussion autour des campagnes de sea shepherd.
 le repas sera assuré par les amiEs de las vegan.
 
-
 samedi 25 mai à 14h
 atelier de cuisine vegan
 le lokal revisite les recettes de "vegan black metal chef".
 
-
 mercredi 15 mai à 19h
 soirée pour la sortie de "ramasser les miettes"
 brochure/compilation sur l'histoire du mouvement punk aka "le punk pour les nulLEs".
-
 
 samedi 11 mai à la baf (2 chemin des alpins - grrr)
 concert hors-les-murs
@@ -555,11 +514,9 @@ concert hors-les-murs
 20h - concert
 juggling jugulars (punk/hc mélodique - finlande) + chicken's call (@punk mélodique - grrr) + richard durn (fast déglinguo core - nancy)
 
-
 dimanche 5 mai à 15h
 atelier écriture dalidark
 c'est toujours non-mixte, ça change juste de jour pour ce mois.
-
 
 mardi 9 avril à 19h
 La crise grecque s’invite au local autogéré
@@ -569,7 +526,6 @@ samedi 23 mars à 19h
 apéro-vernissage "objets perdus et trouvés dans le bruit"
 expo de photos de concerts punk/hc de rené olvera (mexique). l'expo sera visible jusqu'à fin avril.
 
-
 jeudi 21 mars à la baf (2 chemin des alpins - grrr)
 concert hors-les-murs
 19 h - bouffe vegan
@@ -577,30 +533,25 @@ concert hors-les-murs
 schaeffer (emocrust - suisse) + clot (noise punk - amiens) + ?
 altercado a du annulé sa tournée, un des membres étant bloqué en russie suite au refus de la finlande de le laisser rentrer dans l'espace shengen.
 
-
 samedi 9 février  à 14h
 atelier de cuisine vegan
 le retour des ateliers. on cuisine touTEs ensembles et après on mange.
-
 
 dimanche 3 février à 18h
 ciné-club
 projection de la brune et moi de philippe puicouyoul (1980 - 55') + reportage sur le 1er fest punk en france à de mont-de-marsan en 1976.
 
-
-samedi 26 janvier 
+samedi 26 janvier
 le lokal envahit la luttine (infoshop à lyon, rue montesquieut).
-
 
 dimanche 13 janvier à 18h
 ciné-club
 noise & resistance de julia ostertag et francesca araiza andrade (2009/2010 - 90')
 les deux réalisatrices nous proposent une immersion dans le milieu punk activiste européen.
 
----
+***
 
 ## 2012
-
 
 mardi 18 décembre à 19h
 taenia solium party
@@ -624,7 +575,7 @@ Le groupe de hard-rock britannique Spinal Tap fait fureur. Les trois jeunes musi
 samedi 6 octobre à 15h
 aprèm dalidark
 
-jeudi 4 octobre 
+jeudi 4 octobre
 apéro + projection
 18h: apéro
 19h: projection de "la brune et moi" (philippe puicouyoul - 1980 - 55').
@@ -643,14 +594,12 @@ we jam econo: the story of the minutemen de tim irwin (2005).
 retour sur ce groupe atypique du début des années 80. interviews de mike watt et george hurley, live, interventions de ian mc kaye, henry rollins, thurston moore...
 miammiam vegan après la proj.
 
-
 lundi 11 juin à 19h
 rencontre / lecture
 aaron cometbus passe par greville. soirée à ne pas manquer s'il en est!
 auteur américain du plus vieux fanzine punk encore en activité (31 ans), cometbus. A l'occasion de la traduction en français du dernier numéro du fanzine, il fait quelques dates en france avec la personne qui a traduit le zine...
 Présentation du dernier numéro, "En chine avec Green Day?":
 "Aaron cometbus, auteur issu de la scène underground, est connu pour être resté fidèle à son éthique punk et son approche Do It Yourself. Lorsque Green day l'invite sur leur tournée asiatique, ce sont deux styles de vie radicalement différents qui se retrouvent côte à côte. Vingt ans auparavant, ils voyageaient ensemble, amis avant que le groupe ne trouve gloire et fortune. Et maintenant, peuvent-ils reprendre la route? Quelle sera l'issue de ces retrouvailles?"
-
 
 dimanche 3  juin à 19h
 ciné-club - cycle de documentaires sur le punk
@@ -659,14 +608,11 @@ le 1er volet sera consacré aux thugs.
 ce docu revient sur la reformation des thugs en 2008 pour le festival anniversaire de sub pop.
 miammiam vegan après la proj.
 
-
 samedi 2 juin à 14h
 le collectif dalidark vous invitent pour un après-midi en non-mixité femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-
 jeudi 31 mai à 19h
 apéro musical avec dj so et vernissage de l'expo "archives et fonds de tiroirs" - rétrospectives en affiches, flys, zines... de la scène grenobloise des 80's à aujourd'hui. expo visible jusqu'à fin octobre.
-
 
 vendredi 11  mai à 19h
 concert hors-les-murs au 102
@@ -674,29 +620,25 @@ concert hors-les-murs au 102
 "Noise and Resistance" is an inspiring journey through Europe's contemporary utopia, to subcultural places of desire where unity derives from autonomy along with the best punk sound you've heard for years. 21h: concert avec no rest (punkhc - brésil) + 2 autres groupes à confirmer.
 miammiam vegan
 
-
 samedi 5 mai à 14h
 le collectif dalidark vous invitent pour un après-midi en non-mixité femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-
 dimanche 22 avril à 18h
--La pitrerie électorale en cours vous afflige ou vous fait pleurer?
+\-La pitrerie électorale en cours vous afflige ou vous fait pleurer?
 Certes...mais le local autogéré a parfois aussi envie d'en rigoler...
--Il y a 5 ans, de rage, vous avez jeté votre télé par la fenêtre?
+\-Il y a 5 ans, de rage, vous avez jeté votre télé par la fenêtre?
 Le local autogéré aime la récup' et stocker des montagnes d'objets inutiles...nous l'avons retrouvé!
--Mais quel sera le tiercé gagnant cet année?
-*Anars, totos, conseillistes, punks et rebelles, nous sommes sûrs que vous avez votre petite idée.*
-*Le local vous offre l'occasion unique d'assouvir tous vos fantasmes citoyennistes en participant à notre grand jeu concours .
+\-Mais quel sera le tiercé gagnant cet année?
+_Anars, totos, conseillistes, punks et rebelles, nous sommes sûrs que vous avez votre petite idée._
+\*Le local vous offre l'occasion unique d'assouvir tous vos fantasmes citoyennistes en participant à notre grand jeu concours .
 Et en plus, il y aura des lots a gagner.
 Et il parait même qu'il y aura des plateaux télé vegan, punks, et passion!
--Une soirée électorale au local autogéré???
+\-Une soirée électorale au local autogéré???
 Et pourquoi pas!
-
 
 mardi 17 avril à 19h
 L'infotour NoBorder passe à grenoble pour présenter les activités Noborder à Calais, ville frontière vers l'Angleterre, pour surveiller et prévenir les violences policières et soutenir les migrant-es qui tentent de passer. Ce sera aussi le moment pour prendre des informations sur les camps NoBorder de Düsseldorf-Cologne et de Stockholm et d'en savoir plus sur la guerre aux migrant-es menée par l'Europe par le biais de l'agence Frontex. Pour alimenter la discussion, on passera des extraits de vidéos issues des luttes pour et contre les migrations.
 et sinon, comme d'hab au local, cela sera  vegan, punk et passion!
-
 
 samedi 7 avril à 14h
 le collectif dalidark vous invitent pour un après-midi en non-mixité femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
@@ -704,14 +646,12 @@ le collectif dalidark vous invitent pour un après-midi en non-mixité femmes/go
 samedi 10 mars à 19h
 benoît derotti et sa guitare enflammeront la local au son du flamenco!
 
-
 samedi 3 mars à 14h
-Le collectif Dalidark vous invite au Local Autogéré pour une après-midi en non-mixité 
+Le collectif Dalidark vous invite au Local Autogéré pour une après-midi en non-mixité
 femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-      
 mercredi 29 février à 19h
-projection + discussion 
+projection + discussion
 JOUR DE SORTIE
 essai documentaire de Fabien Fischer (2011/DVCPROHD/54mn)
 Les 2 maisons production
@@ -720,7 +660,6 @@ Maison d'arrêt de Varces, fin 2010, des individus en détention imaginent
 leur premier jour de sortie de la prison en le dessinant sur une feuille
 calque transparente. Des récits de projection du réel à venir, un regard
 sur le dehors du dedans et le poids du dehors sur l'enfermement.
-
 
 samedi 25 février à 19h
 SUB-CNT 38 présente:
@@ -753,17 +692,14 @@ Le local invite en ce début d'année l'espace associatif autogéré La Luttine.
 Pour rencontrer le collectif, passez nous voir à partir de 16h.
 Il y a aura de la musique, des projs, des discussions, des boissons ... Sortie d'un zine et d'une K7 tout spécialement pour l'occasion.
 
-
 Dimanche 22 janvier à 19h
 Ciné-club
 Wassup Rockers de Larry Clark
 Los Angeles, des punks chicanos s'invitent à Beverly Hills pour skater et casser les frontières ...
 
-
----
+***
 
 ## 2011
-
 
 mercredi 21 décembre
 écoute collective "les murs ont des oreilles" à 19h + atelier d'écriture pour les détenuEs à 20h.
@@ -796,9 +732,9 @@ on prends un petit temps pour se rencontrer, discuter, donner des idées, etc...
 
 mardi 22 novembre concert hors-les-murs à polotti
 à 19 h repas vegan et à 20h30 concert
-petra schelm (hcnoise avec une b.a.r - grrr) + alout alim (rap - toulouse) + seasick6 (surfpunk - toulouse) + inner conflict (@punk mélodique - germoney).  
+petra schelm (hcnoise avec une b.a.r - grrr) + alout alim (rap - toulouse) + seasick6 (surfpunk - toulouse) + inner conflict (@punk mélodique - germoney).
 
-mercredi 16 novembre 
+mercredi 16 novembre
 écoute collective "les murs ont des oreilles" à 19h + atelier d'écriture pour les détenuEs à 20h
 
 dimanche 13 novembre à 19h
@@ -823,8 +759,7 @@ Dalidark c’est quoi ? C’est un collectif féministe non-mixte qui existe
 depuis un an, dont le but est de promouvoir les créations DIY de
 meufs/gouines/trans et aussi de créer nous-mêmes ! Pour ça nous organisons
 des ateliers, des concerts, etc...dans différents lieux à Grenoble. Pour
-nous contacter dalidark[at]gresille.org.
-
+nous contacter dalidark\[at\]gresille.org.
 
 mercredi 2 novembre à 20h
 atelier d'd'écriture pour les détenuEs
@@ -841,7 +776,7 @@ c'est mr. asse qui s'y colle pour la rentrée.
 samedi 24 septembre
 soirée timult
 
-Venez discuter de nos manières d’écrire, de lire, de parler et (surtout) 
+Venez discuter de nos manières d’écrire, de lire, de parler et (surtout)
 de faire nos luttes.
 
 TIMULT est une revue politique qui malaxe depuis deux ans récits et
@@ -868,7 +803,6 @@ pourrav’ à prendre dans l’éduction populaire. Ensuite, alors là, hein,
 c’est complètement faux d’abord : ces ateliers sont hyper mégas trippants,
 Venez !
 
-
 mercredi 21 septembre à 19h
 écoute collective "les murs ont des oreilles".
 extraits de correspondance avec laurent, détenu à varces puis corbas et récemment interné d'office à l'unité pour malades difficiles (UMD) de montfavet.
@@ -884,17 +818,16 @@ discussion proposée par tuna, sur le thème: d.i.y et santé féminine.
 repas vegan et concert avec:
 tuna (brésil) + plaine crasse (grrr) + petra schelm (grrr) + chicken's call (grrr).
 
-
 jeudi 7 juillet à 19h
 apéro pour la sortie de la démo k7 de taulard
 c'est l'ami josselin (du dit groupe) qui animera musicalement la soirée!
 
- jeudi 30 juin à 19h
+jeudi 30 juin à 19h
 apéro musical avant la fermeture estivale
 ce coup-ci, c'est DJ A.ROOLET'S qui s'y colle et il nous fera , sans aucun doute, voyager sur un skate!!
 
 dimanche 19  juin à 19h
-ciné-club 
+ciné-club
 apportez-moi la tête d'alfredo garcia de sam peckinpah  (1974-112mn)
 
 "dans une hacienda mexicaine règne el jefe, un riche et puissant propriétaire foncier. sa fille étant tombée enceinte, il la torture pour qu'elle lui révèle le nom du séducteur : alfredo garcia. el jefe offre alors une récompense d'un million de pesos à qui lui rapportera la tête de l'homme en question."
@@ -919,51 +852,44 @@ soirée autour de la psychiatrie
 dans le cadre d'une tournée d'échanges/informations faites par des genTEs de toulouse.
 
 projection de l'enclave de francis del rio + discussion. rien n'est encore vraiment défini mais, voici quelques pistes de réflexions:
-- est-il illusoire de vouloir créer une quelconque forme d'alternative à la psychiatrie (lieu de vie, réseau de soutien plus large, comment, pour qui?).
-- quelle articulation entre le refus du savoir / pouvoir psychiatrique et l'aide concrète en situation de crise quand quelqu'unE se trouve hospitaliséE?
-- qu'est-ce qui peut-être fait fait en amont et en aval?
-- qu'est-ce qui doit être encore, et de nouveau, pensé sur la psychiatrisation à outrance de la société dans laquelle nous vivons?
+
+* est-il illusoire de vouloir créer une quelconque forme d'alternative à la psychiatrie (lieu de vie, réseau de soutien plus large, comment, pour qui?).
+* quelle articulation entre le refus du savoir / pouvoir psychiatrique et l'aide concrète en situation de crise quand quelqu'unE se trouve hospitaliséE?
+* qu'est-ce qui peut-être fait fait en amont et en aval?
+* qu'est-ce qui doit être encore, et de nouveau, pensé sur la psychiatrisation à outrance de la société dans laquelle nous vivons?
 
 mercredi  20 avril à 19h
 écoute collective "les murs ont des oreilles"
 Les Murs ont des Oreilles, c’est une émission anti-carcérale, contre la taule et toutes les formes d’enfermement. En janvier dernier, soit juste avant la Révolution, nous sommes allé-es en Egypte rencontrer 6 militants politiques, qui nous ont raconté leurs expériences de lutte, leurs rapports à la répression et à la prison, et comment ils envisageaient l’avenir... Nous en avons fait 2 émissions de radio, dont la seconde raconte spécifiquement des expériences d’incarcération, et explique comment ça influé dans les luttes contre le régime dictatorial de Moubarak.
 On vous propose donc de venir écouter collectivement cette émission, et puis aussi, on passera un petit montage d’images et de vidéos de la Révolution en Egypte !
 
-
 dimanche 10 avril à 19h
 rencontre / discussion sur les luttes en chine
 Témoignages et réflexions autour de la vague de grèves de 2010 qui a eu lieu en Chine, aperçu de la situation des travailleurs migrants en Chine et des différentes formes de lutte, perspectives et formes possibles d'échanges, de soutien et de mobilisations avec les luttes ouvrières dans le monde (de la Chine à la Grèce en passant par l'Egypte).
 
-
 jeudi 7 avril à 19h
 apéro / vernissage pour la sortie du zine "les robots aussi #1"
-
 
 mercredi 6 avril à 19h
 rencontre / discussion sur la répréssion en bièlorussie
 avec la présence d'activistes bièlorusse.
 
-
 dimanche 27 mars à 19h
-ciné-club - 2nd volet du cycle western 
+ciné-club - 2nd volet du cycle western
 les larmes du tigre noir  de wisit sasanatieng (thaïlande - 170' - 2000)
 pour vous mettre en condition: les larmes du tigre noir
-
 
 jeudi 24 mars à 19h
 apéro de soutien à reclaim the underground (festival d.i.y à timisoara)
 infos sur la situation du collectif, de la zique et un repas vegan.
 
-
 ANNULE! samedi 19 mars ANNULE!
 journée vegan
 atelier cuisine à partir de 14 h, resto à 19h.
 
-
 mercredi 16 mars à 19h
 écoute collective "les murs ont des oreilles" - luttes politiques et répression en égypte
 un bref aperçu des dynamiques politiques qui ont traversé ce pays, de 2005  à janvier 2011, avant que n'éclate la révolution. des militants égyptiens témoignet de leur lutte contre le régime dictatorial de moubarak.
-
 
 vendredi 4 mars à 20h
 soirée collectif bâtiment / SUB (syndicat unitaire du bâtiment)
@@ -980,16 +906,14 @@ Deux reportages de "Cinq colonnes à la une" diffusés à télé en 1960...
 
 "Laisse béton" ou le projet d'aéroport du grand ouest et la vie qui va avec... Novembre 2010, 23 min
 
-
-
 dimanche 20 février à 18h
 ciné-club
 le grand silence de sergio corbucci (105' - 1968)
 
 "Hiver 1898, dans les montagnes de l'utah,
- des paysans et bûcherons sont devenus hors-la-lois pour survivre. Des 
-chasseurs de primes, dirigés par le doucereux mais cruel Tigrero, sont 
-payés pour les abattre. Pauline, dont le mari a été tué par Tigrero, 
+des paysans et bûcherons sont devenus hors-la-lois pour survivre. Des
+chasseurs de primes, dirigés par le doucereux mais cruel Tigrero, sont
+payés pour les abattre. Pauline, dont le mari a été tué par Tigrero,
 engage, Silence, un pistolero muet pour la venger."
 
 jeudi 10 février à 19h
@@ -999,13 +923,13 @@ c'est dj noir qui nous fera découvrir ses groupes fétiches, ses coups de coeur
 dimanche 16 janvier à 18h
 ciné-club - 3ème volet du cycle "luttes de femmes et cinéma"
 la fiancée du pirate de nelly kaplan (106' - 1969)
-"L'histoire est celle de la vengeance de Marie, une orpheline pauvre, 
-contre l'hypocrisie et la médiocrité de tout un village. Film 
-impertinent qui dénonce dans une veine plus surréaliste que sociale, 
-teintée d'humour noir, les préjugés moraux et la tartuferie de certains 
+"L'histoire est celle de la vengeance de Marie, une orpheline pauvre,
+contre l'hypocrisie et la médiocrité de tout un village. Film
+impertinent qui dénonce dans une veine plus surréaliste que sociale,
+teintée d'humour noir, les préjugés moraux et la tartuferie de certains
 bien-pensants".
 
---- 
+***
 
 ## 2010
 
@@ -1063,7 +987,6 @@ mercredi 20 octobre à 19h
 écoute collective "les murs ont des oreilles"
 3 mois après l’assassinat de Karim Boudouda par un flic de la BAC de grenoble, et la tempête médiatique, policière et politique, qui a suivi, Les Murs ont des Oreilles propose de revenir sur ces derniers mois écoulés au quartier de la Villeneuve, entre colères de la population, opérations policières, et tentatives de récupérations politiques.
 
-
 samedi 16 octobre à 18h
 Cycle Le monde du bâtiment dans les films - opus 4
 remparts d'argile de jean-louis bertuccelli (1968)
@@ -1071,7 +994,6 @@ remparts d'argile de jean-louis bertuccelli (1968)
 dans le même temps, une jeunne femme se libère de son rôle de femme. la solidarité et la dignité sont les points communs de ces histoires.
 un beau film sur un rythme lent."
 apéro dès 18h et projection à 19h30.
-
 
 dimanche 10 octobre à 18h
 ciné-club - 1er volet du cycle "luttes de femmes et cinéma"
@@ -1081,7 +1003,6 @@ Malheureusement, la mine est un fief masculin, où les rares femmes s'exposent �
 Mais les incidents se multiplient, et la pression monte de jour en jour, jusqu'à ce que la jeune femme, bien qu’elle ait besoin de ce job pour vivre et élever ses enfants, tente l'impensable : porter l'affaire devant la justice."
 
 miammiam vegan et glouglou après la proj.
-
 
 dimanche 26 septembre à 18h
 concert hors-les-murs au 102 avec preying hands (@punk mélodique - canada) + coche bomba (fastcore - lyon)
@@ -1118,7 +1039,7 @@ mercredi 16 juin  à 19h
 Contre-infos et reportage sonore sur ce qui s’est passé à Chambéry en avril et le rassemblement qui s’en est suivi.
 
 Deux exemples (presque) au hasard :
- Le 1er mai à Grenoble, après que deux caméras de vidéosurveillance aient été cassées durant la manif sans que la maréchaussée n’ait rien pu faire, une personne qui proteste contre une arrestation se prend un violent coup de matraque à la tempe par un policier de la BAC, s’écroule et est transportée à l’hosto par les pompiers. Depuis cette personne s’est relevée mais garde des séquelles inquiétantes.
+Le 1er mai à Grenoble, après que deux caméras de vidéosurveillance aient été cassées durant la manif sans que la maréchaussée n’ait rien pu faire, une personne qui proteste contre une arrestation se prend un violent coup de matraque à la tempe par un policier de la BAC, s’écroule et est transportée à l’hosto par les pompiers. Depuis cette personne s’est relevée mais garde des séquelles inquiétantes.
 
 Dans la nuit du 23 au 24 avril à Chambéry, une bagarre éclate dans un parc. La police intervient. Une personne souhaite éviter la maréchaussée. Elle est poursuivie par un policier de la BAC, qui la rattrape et la roue de coups. Elle s’écroule et est transportée à l’hosto par les pompiers. Depuis, cette personne ne s’est pas relevée. Elle est toujours dans le coma.
 
@@ -1135,7 +1056,6 @@ Les CIRA (Centre international de recherches sur l’anarchisme) de Lausanne et 
 Mercredi 5 mai à 19h
 apéro / vernissage
 Expo photos sur le thème "Fiat en lutte".  Trente ans après l'automne chaud qui avait fait trembler le patronat italien, les ouvriers des usines Fiat sont toujours en lutte contre les restructurations, les fermetures d'usine, les conditions de travail toujours plus féroces ...
-
 
 dimanche 25 avril à 19h
 ciné-club
@@ -1165,7 +1085,6 @@ mercredi 17 mars à 18h
 stephane nous cause de sa vie: le foyer, la famille, les petits vols et la demerde,
 le rapport avec la justice, la prison, et plein d'autres choses...
 
-
 dimanche 7 mars à 18h
 ciné-club
 projection de "when the levees broke: a requiem in four acts". docu de Spike Lee (v.o - 2006).
@@ -1189,7 +1108,6 @@ jeudi 21 janvier à 19h
 apéro pour la sortie de l'album de stanok'n'roll en collaboration avec taenia solium
 Écoute, Champagne et petits fours pour de la musique déconcertante et remuante.
 
-
 dimanche 17 janvier à 18h
 ciné-club + apéro de rentrée
 projection du film "les 400 coups" de François Truffaut ( 93' - 1959)
@@ -1199,15 +1117,16 @@ aprés la projection pour ceux / celles qui le souhaitent, il y aura un petit ap
 samedi 16 janvier à 19h
 discussion avec le collectif dissent
 réflexions sur les contre-sommets. quelques idées qui pourront être abordées, suivant les envies de chacunEs:
-- Quels liens entre les contre-sommets et nos luttes?
-- Comment voulons-nous gérer les questions de genre dans nos « alliances », villages et actions? Comment combattre le sexisme à l'intérieur et à l'extérieur de nos structures?
-- Villages: à continuer ? La mise en pratique de l'autogestion est-elle un but? Quel est notre impact politique sur ce point? Un espace d'échanges et de pratiques d'autogestion ou une base de départ vers les actions ? Comment éviter l'encerclement et le contrôle des militantEs ?
+
+* Quels liens entre les contre-sommets et nos luttes?
+* Comment voulons-nous gérer les questions de genre dans nos « alliances », villages et actions? Comment combattre le sexisme à l'intérieur et à l'extérieur de nos structures?
+* Villages: à continuer ? La mise en pratique de l'autogestion est-elle un but? Quel est notre impact politique sur ce point? Un espace d'échanges et de pratiques d'autogestion ou une base de départ vers les actions ? Comment éviter l'encerclement et le contrôle des militantEs ?
 
 dimanche 10  janvier à 18h
 soirée sur les luttes en Argentine avec la collaboration de la CNT.
 Rencontre débat avec un copain de Pampa Libertaria (Argentine) sur les luttes actuelles (de travailleurEs comme dans le métro de Buenos Aires, des mapuches, de paysans, de squats), de la répression (la "détentefacil") et de la situation des prisonnierEs politiques.
 
-Samedi 9 janvier 
+Samedi 9 janvier
 Cycle Le monde du bâtiment dans les films - opus 2
 apéro dès 19h / début de la projection 20h
 EN CONSTRUCCION, un film de José Luis Guerin, Espagne, 2008
@@ -1215,7 +1134,7 @@ film en castillan/catalan, sous-titré en français, 2h
 
 ''A Barcelone, comme dans toutes les grandes villes, on fait et défait les quartiers, sous l'ordre des nouveaux pharaons. El Chino est l'un de ces quartiers.La construction d'un immeuble devient l'héroïne d'un film à l'image impeccable, où s'imbriquent les vies des habitantEs et des ouvriers. Pendant deux petites heures, le rythme est donné par celles et ceux qui font la ville: les maçons, les gamins turbulents, les vieux aux savoirs encyclopédiques, les jeunes qui rigolent. La vie d'un quartier comme si on y était, parce que ça pourrait être le nôtre''.
 
----
+***
 
 ## 2009
 
@@ -1245,12 +1164,11 @@ cabine, une ribambelle de chats."
 pour celles et ceux qui le souhaitent, une bouffe est proposé après la
 projection.
 
-
 mardi 24 novembre à 20h
 café / débat avec le génépi
 discussion sur le thème des longues peines.
 ça commencera avec une présentation de la politique pénale en France à propos des longues peines, à partir de combien de temps nous appelons cela des longues peines, pour quelles crimes sont-elles appliquées...
-puis on ouvrira le débat sur le sens de la peine, de ce qu'une longue peine peut entraîner sur les conditions de vie et la psychologie des détenuEs. 
+puis on ouvrira le débat sur le sens de la peine, de ce qu'une longue peine peut entraîner sur les conditions de vie et la psychologie des détenuEs.
 
 vendredi 20 novembre à 19h
 vernissage / apéro
@@ -1260,7 +1178,6 @@ vendredi 13 novembre à 19h30
 projection / discussion
 avec le collectif palenque sur la situation des communautés indiennes en colombie et sur la Minga en particulier.
 et après on fait la rumba!!
-
 
 jeudi 22 octobre à 19h
 soirée collectif bâtiment
@@ -1272,23 +1189,20 @@ et à 20h30, projection de "mundo grua" de Pablo Trapero,(argentine, 1999) 1h30
 "Des grues, la caméra descend d'abord s'attarder sur un ouvrier en particulier. On le voit décrocher la place de grutier, rentrer chez lui, manger avec sa mère, trafiquer des moteurs avec ses potes. Rulo, c'est son nom. Rulo est une ancienne gloire éphémère, le bassiste d'un groupe rock des années 70. Mundo Grua, c'est ça : un film sur le prolétariat de Buenos
 Aires, la tranche de vie d'une bande de pauvres hères, entre cuites au gros rouge et petits boulots mal payés."
 
-
 dimanche 18 octobre à 18h
 ciné-club
 projection du film «  Zero de conduite »  de J. Vigo.
 histoire d'une rébellion  dans un    collège des années 30.
-
 
 samedi 17 octobre à 14h
 atelier de cuisine vegan
 venez découvrir et partager nos délicieuses recettes sans produits d'origine animale.  au menu:
 bourguignon de seitan, gratin de boulghour et crême chocolat au potimarron.
 
-
 mercredi 7 octobre à 19h30
-                                                  ANNULATION
- La rencontre-discussion avec la présidente de l'ARPPI est annulée du fait de sa non-venue.
-                                                  Veuillez nous en excuser.
+ANNULATION
+La rencontre-discussion avec la présidente de l'ARPPI est annulée du fait de sa non-venue.
+Veuillez nous en excuser.
 
 vendredi 26 juin  à 19h
 venez nous rejoindre pour la traditionnelle fête de fermeture estivale avec un set de laPrévo.
@@ -1298,9 +1212,9 @@ apéro/présentation du camp no border de calais (23-29 juin). projection du fil
 
 vendredi 5 juin à 20h
 soirée autour des luttes contre les centres de rétention. projection de films et discussion avec les co-auteurs du bouquin
-"feu aux centres de rétention". 
+"feu aux centres de rétention".
 
-dimanche 24 mai 
+dimanche 24 mai
 ciné-club à 19h
 projection de "l'avocat de la terreur" de barbet schroeder (127' - 2007).
 Communiste, anticolonialiste, d'extrême droite ? Quelle conviction
@@ -1321,26 +1235,26 @@ miam miam et glou glou après la proj.
 
 Mardi 31 mars
 projection / discussion avec le génépi à 19h30
-- Trouble-peine de S-C. Gauthier. Témoignages de l’intérieur d’une centrale.
-- Les résidentes de H. Trigueros. Extraits d’un film sur les conditions de
-détention de femmes condamnées à de longues peines.
+
+* Trouble-peine de S-C. Gauthier. Témoignages de l’intérieur d’une centrale.
+* Les résidentes de H. Trigueros. Extraits d’un film sur les conditions de
+  détention de femmes condamnées à de longues peines.
 
 dimanche 15 mars
 ciné-club à 18 h
 Projection de "calle santa fe", de carmen castillo (2007).
-synopsis : C’est un film sur l’engagement politique, au plus près de la vérité d’une femme chilienne, Carmen Castillo, 
-qui survit à son compagnon, Miguel Enriquez, chef de la Résistance contre la dictature de Pinochet, mort au combat, 
+synopsis : C’est un film sur l’engagement politique, au plus près de la vérité d’une femme chilienne, Carmen Castillo,
+qui survit à son compagnon, Miguel Enriquez, chef de la Résistance contre la dictature de Pinochet, mort au combat,
 rue Santa Fe, dans les faubourgs de Santiago du Chili, le 5 octobre 1974.
 Un récit tendu par une interrogation : tous ces actes de résistance valaient-ils la peine ? Miguel et les autres sont-ils
 morts pour rien ?
-Au fil des rencontres avec les habitants de la rue Santa Fe, la famille, les amis, leurs vies, leurs visages, Carmen 
-Castillo parcourt un chemin, qui va de la clandestinité à l’exil, des jours lumineux d’Allende aux longues années sombres 
+Au fil des rencontres avec les habitants de la rue Santa Fe, la famille, les amis, leurs vies, leurs visages, Carmen
+Castillo parcourt un chemin, qui va de la clandestinité à l’exil, des jours lumineux d’Allende aux longues années sombres
 de la dictature, avec tous ceux qui ont combattu et ceux qui résistent encore aujourd’hui. Se tissent l´histoire d’une géné-
--ration de révolutionnaires et celle d’un pays divisé. La quête du sens de ces vies engagées nous conduira dans les sous-sols 
+\-ration de révolutionnaires et celle d’un pays divisé. La quête du sens de ces vies engagées nous conduira dans les sous-sols
 d’un pays amnésique où les morts ne sont pourtant pas morts et où les jeunes inventent, une nouvelle fois, un rêve.
 
 comme d'hab miam miam et glou glou après la proj.
-
 
 samedi 14 mars
 atelier cuisine vegan à 15h
@@ -1348,8 +1262,7 @@ et youpla c’est reparti pour un autre atelier de cuisine vegan, avec cette foi
 du pain, des pates bolognaise vegan et un autre truc.
 ensuite on mange tout.
 
-
-vendredi 6 mars 
+vendredi 6 mars
 rencontre avec le collectif dissent à 18h30
 Rencontre avec des gens du collectif dissent, qui nous ferons un petit topo sur ce qu’est l’otan, avant de nous presenter la mobilisation qui va avoir lieu contre le sommet de l’otan a strasbourg (3 et 4 avril prochain).
 puis discussion passionée...
@@ -1361,7 +1274,7 @@ août, avant l'explosion (avi mograbi – 72mn – 2001)
 avi mograbi déteste le mois d'août. Il symbolise à ses yeux tout ce qu'il y a de plus insupportable en israël. Au fil des 31 jours de ce mois quelconque, il sillone les rues avec sa caméra et nous livre ses réflexions intérieures par le biais de scènes fictives, dans lesquelles il joue à la fois son propre rôle, celui de sa femme et celui du producteur d'un film qu'il prépare sur le massacre de musulmans par un colon israëlien dans une mosquée à hébron.
 
 samedi 7 février
-soirée projection-discussion autour de toutes les questions qu'évoque le DIY (fais-le toi-même !). 
+soirée projection-discussion autour de toutes les questions qu'évoque le DIY (fais-le toi-même !).
 voici quelques pistes:
 Que l'on veuille ou pas la mort de la Culture, que l'on soit punk ou hippie, musicien ou grand/e organisateur/trice d'évènements culturels, producteur/trice
 ou écrivain/e, qu'est-ce qui nous pousse à agir hors des circuits culturels institutionnels,  subventionnés, commerciaux ? Que recherche-t-on dans
@@ -1369,21 +1282,20 @@ des pratiques culturelles autonomes ? Et d'ailleurs comment les définit-on : pa
 de la subversion des formes esthétiques du bon goût, par  un amateurisme débridé qui frise parfois l'incompétence, par l'ancrage dans un message
 politique explicite ? Et puis, jusqu'à quel point recherche-t-on cette autonomie dans nos pratiques culturelles ? En fait-on un absolu sans la
 moindre concession ou bien est-on prêt à en vivre, à faire des compromis pour une plus grande diffusion ? Recherche-t-on la gloire ou le plaisir
-éternels ? Peut-on  devenir un professionnel de l'autonomie ? 
-- Les discussions seront précédées de la projection du film "DIY - how to survive as an independant artist".
-http://en.wikipedia.org/wiki/index.html?curid760225
+éternels ? Peut-on  devenir un professionnel de l'autonomie ?
 
+* Les discussions seront précédées de la projection du film "DIY - how to survive as an independant artist".
+  http://en.wikipedia.org/wiki/index.html?curid760225
 
-mardi 3 février 
+mardi 3 février
 repas féministe a 19h
 C'est un repas entre femme sur le principe d'une auberge espagnole. Chacune amène à boire .
-
 
 jeudi 22 janvier à 18h
 atelier d'écriture
 un atelier qui a pour thème: "écris toi-même ta chanson". ou comment écrire une chanson en 3 heures.
-les textes seront compilés avec des photos, des dessins et d'autres textes sur une brochure qui sera diffusée 
-lors de la soirée du 7/02.  
+les textes seront compilés avec des photos, des dessins et d'autres textes sur une brochure qui sera diffusée
+lors de la soirée du 7/02.
 
 dimanche 18 janvier à 18h
 
@@ -1391,271 +1303,266 @@ lectures de textes dans le cadre de la semaine d'activités / actions en solidar
 procédure anti-terroriste.
 lectures de textes d'ulrike meinhof, franca rame et bien d'autres. apportez les textes que vous souhaitez faire découvrir, partager...
 
----
+***
 
 ## 2008
 
 dimanche 14 décembre à 16h
 projection + bouffe vegan + concert acoustique
 on débutera avec la proj de "mister freedom" (l'histoire d'un superman americain, justicier et moralisateur,
-qui propose de gre ou de force les bienfaits de la liberte. La tres puissante Freedom Organisation lui donne 
+qui propose de gre ou de force les bienfaits de la liberte. La tres puissante Freedom Organisation lui donne
 pour mission de liberer la France de la menace rouge et du peril jaune.)
 on fait une petite pause pour manger et on termine avec "les alpes à lâches" (a.k.a raf famine et pedro, banjo
- et guitare sèche!)
+et guitare sèche!)
 
 > mardi 9 décembre à 19h30
-projection + rencontre/débat avec des membres du genepi (groupement étudiant national d'enseignement aux personnes 
-incarcérées)
-- extraits du film "9m2 pour 2" de jimmy glasberg et joseph césarini - 2005
-les détenus prennent tour à tour le rôle du filmé et du filmeur et abordent autour de l’idée de « convivialité 
-forcée » différents thèmes tels que : le retour du parloir, la partie de scrabble, le sens de la 
-peine,la libération proche, le conflit dû à cette promiscuité…
-Le film (1h30) est une série de petites séquences de scènes de vie, on a décidé dene diffuser que 
-les 30 premières minutes afin d'aborder des questions très diverses sur le quotidien en détention.
+> projection + rencontre/débat avec des membres du genepi (groupement étudiant national d'enseignement aux personnes
+> incarcérées)
 
-- "libérables" de deniz erguven - 2004 - 35'
-A Paris, une équipe propose à des personnes tout juste sorties prison de les amener à l'endroit de
-leur choix. Dans la voiture une discussion s' amorce : réinsertion; liberté, quotidien en détention,
-récidive sont abordés.
+* extraits du film "9m2 pour 2" de jimmy glasberg et joseph césarini - 2005
+  les détenus prennent tour à tour le rôle du filmé et du filmeur et abordent autour de l’idée de « convivialité
+  forcée » différents thèmes tels que : le retour du parloir, la partie de scrabble, le sens de la
+  peine,la libération proche, le conflit dû à cette promiscuité…
+  Le film (1h30) est une série de petites séquences de scènes de vie, on a décidé dene diffuser que
+  les 30 premières minutes afin d'aborder des questions très diverses sur le quotidien en détention.
+* "libérables" de deniz erguven - 2004 - 35'
+  A Paris, une équipe propose à des personnes tout juste sorties prison de les amener à l'endroit de
+  leur choix. Dans la voiture une discussion s' amorce : réinsertion; liberté, quotidien en détention,
+  récidive sont abordés.
 
->  Mardi 2 décembre
-plateau-ciné féministe en boxe à 19h
-comme tous les 1er mardi de chaque mois, rdv entre femmes lesbiennes trans monstres non-identifiéEs autour d'un repas, et cette fois avec un film: 
-"girl fight" de karin kusama.
-elle investit un champ dont les femmes sont habituellemnt mises à l'écart, la boxe. à nous de voir si on l'aime ou pas.
+> Mardi 2 décembre
+> plateau-ciné féministe en boxe à 19h
+> comme tous les 1er mardi de chaque mois, rdv entre femmes lesbiennes trans monstres non-identifiéEs autour d'un repas, et cette fois avec un film:
+> "girl fight" de karin kusama.
+> elle investit un champ dont les femmes sont habituellemnt mises à l'écart, la boxe. à nous de voir si on l'aime ou pas.
 
->  Dimanche 23 novembre 
-Ciné-club à 19h
-"sweet sweetback badass song" de melvin van peebles (1977). Un jeune noir originaire de harlem assiste à l'agression injustifiée
-de l'un de ses amis par la police. Pour le défendre, il charge deux policiers, les assome et part en cavale.
+> Dimanche 23 novembre
+> Ciné-club à 19h
+> "sweet sweetback badass song" de melvin van peebles (1977). Un jeune noir originaire de harlem assiste à l'agression injustifiée
+> de l'un de ses amis par la police. Pour le défendre, il charge deux policiers, les assome et part en cavale.
 
->  Samedi 22 novembre
- Atelier bouffe vegan à 15h
-Premier atelier de l'année pour apprendre à cuisiner sans produits d'origine animale.
+> Samedi 22 novembre
+> Atelier bouffe vegan à 15h
+> Premier atelier de l'année pour apprendre à cuisiner sans produits d'origine animale.
 
 > Jeudi 13 novembre
-Rencontre avec la cnt à 19h
-Discussion et proj. Quelques peuvent être le sens, la réalité et les buts de l'anarcho-syndicalisme dans un monde de cogestion.
+> Rencontre avec la cnt à 19h
+> Discussion et proj. Quelques peuvent être le sens, la réalité et les buts de l'anarcho-syndicalisme dans un monde de cogestion.
 
 > Mardi 4 novembre
-repas féministe a 19h
-C'est un repas entre femme sur le principe d'une auberge espagnole. Chacune amène à boire 
+> repas féministe a 19h
+> C'est un repas entre femme sur le principe d'une auberge espagnole. Chacune amène à boire
 
 > Jeudi 23 octobre
-atelier d'écriture
-thème à définir, surement quelques chose d'assez graphique...
+> atelier d'écriture
+> thème à définir, surement quelques chose d'assez graphique...
 
 > Mardi 14 octobre
-Discussion et rencontre sur le thème de la prison, à 19h.
-Avec gwenola ricodeau, auteure du livre "les détenus et leurs proches, solidartités et sentiments a l'ombre des murs".
-+ projection et  apéro.
+> Discussion et rencontre sur le thème de la prison, à 19h.
+> Avec gwenola ricodeau, auteure du livre "les détenus et leurs proches, solidartités et sentiments a l'ombre des murs".
+
+* projection et  apéro.
 
 > Mardi 7 octobre
-repas feministe à 19h
-C'est un repas entre femme sur le principe d'une auberge espagnole. Chacune amène à boire et à manger.
+> repas feministe à 19h
+> C'est un repas entre femme sur le principe d'une auberge espagnole. Chacune amène à boire et à manger.
 
 > Dimanche 5 octobre
-Ciné-club à 19h
-projection de "punkrock holocaust" de Doug Shakman (2003).
-
-
-
-
+> Ciné-club à 19h
+> projection de "punkrock holocaust" de Doug Shakman (2003).
 
 Tout au long du printemps
 Exposition contre les expulsions
 Sur l'immigration, les sans-papiers, leurs lieux de vie et d'enfermement.
 
 > Samedi 17 mai à 20h
-Projection - discussion : Feu à toutes les prisons
-Projection du film "fugue carcérale", de janusz mrozowski (44'), suivie
-d'une discussion sur le thème de l'enfermement.
+> Projection - discussion : Feu à toutes les prisons
+> Projection du film "fugue carcérale", de janusz mrozowski (44'), suivie
+> d'une discussion sur le thème de l'enfermement.
 
 "Quatre semaines durant, dans quatre prisons polonaises, ce film a réuni prisonniers et personnel pénitentiaire, deux mondes qui se côtoient, mais que tout sépare. Directeurs de prison, éducateurs, gardiens et détenus ont accepté de jouer le jeu d’imaginer, ensemble, une prison de rêve. Leur regard, volontiers ironique, à la fois sur la prison et sur eux-mêmes, donne le ton à ce film de fiction, dont ils sont co-auteurs et acteurs. Sous une apparente drôlerie, ils posent des vraies questions sur l’enfermement."
 
-
 > Dimanche 11 mai à 18h
-Ciné-club: Virgin Suicides de Sofia Coppola
-Dans une ville américaine et puritaine des années 70, Cécilia Lisbon, 13 ans, tente de se suicider. Elle a quatre soeurs, de jolies adolescentes.
-L'histoire, relatée par l'intermédiaire de la vision des garçons du voisinage, obsédés par ces soeurs mystérieuses, décris avec cynisme la vie adolescente.
+> Ciné-club: Virgin Suicides de Sofia Coppola
+> Dans une ville américaine et puritaine des années 70, Cécilia Lisbon, 13 ans, tente de se suicider. Elle a quatre soeurs, de jolies adolescentes.
+> L'histoire, relatée par l'intermédiaire de la vision des garçons du voisinage, obsédés par ces soeurs mystérieuses, décris avec cynisme la vie adolescente.
 
 > Samedi 10 mai à 14h
-Atelier gratuit d'initiation de retouche d'images #3
-Si vous avez un ordinateur portable ou pouvez en emprunter un, amenez le pour  que tout le monde puisse essayer et participer concrètement. merci de nous prévenir à l'avance de votre venue en appelant au 08.72.10.07.38 lors des permanences(ou laissez un message sur le répondeur), pour qu'on puisse voir assez de places et d'ordis.
+> Atelier gratuit d'initiation de retouche d'images #3
+> Si vous avez un ordinateur portable ou pouvez en emprunter un, amenez le pour  que tout le monde puisse essayer et participer concrètement. merci de nous prévenir à l'avance de votre venue en appelant au 08.72.10.07.38 lors des permanences(ou laissez un message sur le répondeur), pour qu'on puisse voir assez de places et d'ordis.
 > Mardi 6 mai à 19h
-Repas féministe
-C'est un repas entre femmes sur le principe d'une auberge espagnole. Chacune amène quelque choise à boire et à manger.
-
+> Repas féministe
+> C'est un repas entre femmes sur le principe d'une auberge espagnole. Chacune amène quelque choise à boire et à manger.
 
 > Samedi 12 avril à 14h
-Atelier gratuit d'initiation de retouche d'images #2
-Si vous avez un ordinateur portable ou pouvez en emprunter un, amenez le pour  que tout le monde puisse essayer et participer concrètement. merci de nous prévenir à l'avance de votre venue en appelant au 08.72.10.07.38 lors des permanences(ou laissez un message sur le répondeur), pour qu'on puisse avoir assez de places et d'ordis.
+> Atelier gratuit d'initiation de retouche d'images #2
+> Si vous avez un ordinateur portable ou pouvez en emprunter un, amenez le pour  que tout le monde puisse essayer et participer concrètement. merci de nous prévenir à l'avance de votre venue en appelant au 08.72.10.07.38 lors des permanences(ou laissez un message sur le répondeur), pour qu'on puisse avoir assez de places et d'ordis.
 
 > Mardi 8 avril à 19h
-Repas féministe
-C'est un repas entre femmes sur le principe d'une auberge espagnole. Chacune amène quelque choise à boire et à manger.
+> Repas féministe
+> C'est un repas entre femmes sur le principe d'une auberge espagnole. Chacune amène quelque choise à boire et à manger.
 
 > Dimanche 6 avril à 18h
-Ciné-club: El bonaerense de Carlos Trapero.
-Argentine, Buenos Aires, quand quelqu'un qui ne devrait pas y être, arrive et qu'il devient ce qu'il n'a pas choisit d'être : un flic.
+> Ciné-club: El bonaerense de Carlos Trapero.
+> Argentine, Buenos Aires, quand quelqu'un qui ne devrait pas y être, arrive et qu'il devient ce qu'il n'a pas choisit d'être : un flic.
 
 > Jeudi 27 et vendredi 28 mars à 19h
-Psychiatrie(s)
-3ème volet de notre cycle sur la/les psychiatrie(s) avec la venue de moniteurs/monitrices de la clinique de la borde et autour de la psychotérapie institutionnelle.
+> Psychiatrie(s)
+> 3ème volet de notre cycle sur la/les psychiatrie(s) avec la venue de moniteurs/monitrices de la clinique de la borde et autour de la psychotérapie institutionnelle.
 > Dimanche 16 mars à 18h
-Ciné-club : Sweet sixteen de Ken Loach
-La vie de Liam, 15 ans, écossais, c'est sa mère en prison, 1 beau-père violent, la misère...Et sans doute un éduc, un politicien ou un voisin qui voudrait qu'il soit calme et tranquille. Et sauf que ce n'est pas le cas.
+> Ciné-club : Sweet sixteen de Ken Loach
+> La vie de Liam, 15 ans, écossais, c'est sa mère en prison, 1 beau-père violent, la misère...Et sans doute un éduc, un politicien ou un voisin qui voudrait qu'il soit calme et tranquille. Et sauf que ce n'est pas le cas.
 
 > Samedi 15 mars à 14h
- Atelier d’initiation / perfectionnement à photoshop
-Si vous avez un ordinateur portable ou pouvez en emprunter un, amenez le pour  que tout le monde puisse essayer et participer concrètement. merci de nous prévenir à l'avance de votre venue en appelant au 08.72.10.07.38 lors des permanences(ou laissez un message sur le répondeur), pour qu'on puisse avoir assez de places et d'ordis.
+> Atelier d’initiation / perfectionnement à photoshop
+> Si vous avez un ordinateur portable ou pouvez en emprunter un, amenez le pour  que tout le monde puisse essayer et participer concrètement. merci de nous prévenir à l'avance de votre venue en appelant au 08.72.10.07.38 lors des permanences(ou laissez un message sur le répondeur), pour qu'on puisse avoir assez de places et d'ordis.
 
 > jeudi 13 mars à 19h
-Atelier d'ecriture de discours politique
-Par quelques biais rhétorique pour mentir sans en avoir l'air, nous écrirons des discours sur des sujets chers aux grenoblois-es en ces temps d'élection: parc Mistral, rocade Nord, expulsions, hausse des loyers, nanotech, etc. Participez vous aussi à la mascarade!
+> Atelier d'ecriture de discours politique
+> Par quelques biais rhétorique pour mentir sans en avoir l'air, nous écrirons des discours sur des sujets chers aux grenoblois-es en ces temps d'élection: parc Mistral, rocade Nord, expulsions, hausse des loyers, nanotech, etc. Participez vous aussi à la mascarade!
 
 > Mardi 4 mars à 19h
-Repas féministe
-C’est un repas entre femmes sur le principe d'une auberge espagnole. 
-Chacune amene  quelque chose à boire et à manger.
+> Repas féministe
+> C’est un repas entre femmes sur le principe d'une auberge espagnole.
+> Chacune amene  quelque chose à boire et à manger.
 
 > Samedi 8 mars à 14h
-Seuls les vautours mangent des cadavres #4
-Apprenons à cuisiner sans produits d’origine animale. Thème non défini.
+> Seuls les vautours mangent des cadavres #4
+> Apprenons à cuisiner sans produits d’origine animale. Thème non défini.
 > Samedi 9 février à 14h
-Seuls les vautours mangent des cadavres #3
-Apprenons à cuisiner le gingembre.
+> Seuls les vautours mangent des cadavres #3
+> Apprenons à cuisiner le gingembre.
 
 > Mercredi 6 février à 19h
-Information critique et perspectives au sujet de l'Hôpital couple-enfant
-une rencontre publique afin de prendre connaissance des enjeux d’une telle structure, particulièrement inquiétants au sujet del'IVG. également au programme, une information sur des groupes de réflexions et d’actions déjà en marche et sur ceux à construire ensemble,pour une mobilisation sociale.
+> Information critique et perspectives au sujet de l'Hôpital couple-enfant
+> une rencontre publique afin de prendre connaissance des enjeux d’une telle structure, particulièrement inquiétants au sujet del'IVG. également au programme, une information sur des groupes de réflexions et d’actions déjà en marche et sur ceux à construire ensemble,pour une mobilisation sociale.
 
 > Mardi 5 février à 19h
-Repas féministe
-Chacune amène quelque chose à boire, manger, écouter... selon son envie. C'est en non-mixité femmes. C'est l'occasion de se rencontrer, de mettre en commun des envies, des projets, d'échanger des infos sur ce qui est organisé dans la région grenobloise par / pour des femmes.
+> Repas féministe
+> Chacune amène quelque chose à boire, manger, écouter... selon son envie. C'est en non-mixité femmes. C'est l'occasion de se rencontrer, de mettre en commun des envies, des projets, d'échanger des infos sur ce qui est organisé dans la région grenobloise par / pour des femmes.
 
 > Samedi 26 janvier à 19h
-Psychiatrie(s)
-Deuxième volet du cycle sur la/les psychiatrie/s, projection suivie d'une discussion sur le réseau Deligny, un projet alternatif de vie en collectivité au coeur des Cévennes auprès d'enfants dits autistes, des années 60 aux années 90.
-Projection suivie d’une discussion.
+> Psychiatrie(s)
+> Deuxième volet du cycle sur la/les psychiatrie/s, projection suivie d'une discussion sur le réseau Deligny, un projet alternatif de vie en collectivité au coeur des Cévennes auprès d'enfants dits autistes, des années 60 aux années 90.
+> Projection suivie d’une discussion.
 
 > Mardi 22 janvier à 19h
-Ecoute collective - discussion
-Ecoute d’un entretien avec des membres de la police communautaire du Guerrero (Etat du sud du Mexique) et discussion autour de la réappropriation de la justice.
+> Ecoute collective - discussion
+> Ecoute d’un entretien avec des membres de la police communautaire du Guerrero (Etat du sud du Mexique) et discussion autour de la réappropriation de la justice.
 
 > Dimanche 20 janvier à 18h
-Ciné-club
-Article 13 (20mn) - Une série de témoignages de sans-papierEs, recueillis à l’occasion de leur lutte au printemps 2006 à Marseille.
-Ces gens là (30mn) - Une chronique en 3 volets sur l’immigration, les banlieues, qui s’enchaine comme un parcours initiatique.
-Projection suivie d’un apéro et d’une bouffe.
+> Ciné-club
+> Article 13 (20mn) - Une série de témoignages de sans-papierEs, recueillis à l’occasion de leur lutte au printemps 2006 à Marseille.
+> Ces gens là (30mn) - Une chronique en 3 volets sur l’immigration, les banlieues, qui s’enchaine comme un parcours initiatique.
+> Projection suivie d’un apéro et d’une bouffe.
 
 > Samedi 12 janvier à 14h
-Atelier : Seuls les vautours mangent des cadavres #2
-Second atelier de cuisine vegan avec pour thème les gâteaux.
+> Atelier : Seuls les vautours mangent des cadavres #2
+> Second atelier de cuisine vegan avec pour thème les gâteaux.
 
- Vendredi 11 janvier 2008 à 18h
+Vendredi 11 janvier 2008 à 18h
 Apéro-vernissage
 Autour de la nouvelle exposition temporaire du local.
 
----
+***
 
 ## 2007
 
 > Dimanche 16 décembre à 18h
-Ciné-club - Un racisme à peine voilé de Jérôme Host
-Parce que la morale habille souvent les pensées les moins avouables.
-Projection suivie d'un apéro et d'une bouffe.
- 
->  Mardi 11 décembre à 18h
-Atelier d'écriture - Non mixité
-En non mixité hommes et femmes, atelier autour du sexisme au quotidien.
+> Ciné-club - Un racisme à peine voilé de Jérôme Host
+> Parce que la morale habille souvent les pensées les moins avouables.
+> Projection suivie d'un apéro et d'une bouffe.
+
+> Mardi 11 décembre à 18h
+> Atelier d'écriture - Non mixité
+> En non mixité hommes et femmes, atelier autour du sexisme au quotidien.
 
 > Samedi 8 décembre à 15h
-Atelier : cuisine vegan
-Premier atelier de l'année pour apprendre à cuisiner sans produits d'origine animale.
+> Atelier : cuisine vegan
+> Premier atelier de l'année pour apprendre à cuisiner sans produits d'origine animale.
 
 > Vendredi 7 décembre à 19h
-Histoires autour de la folie
-Ce documentaire de Paule Muxel et Bertrand de Solliers retrace l'histoire de la psychiatri depuis la seconde guerre mondiale et l'invention de l'hôpital moderne. Cette projection sera la première d'un cycle sur la psychiatrie.
+> Histoires autour de la folie
+> Ce documentaire de Paule Muxel et Bertrand de Solliers retrace l'histoire de la psychiatri depuis la seconde guerre mondiale et l'invention de l'hôpital moderne. Cette projection sera la première d'un cycle sur la psychiatrie.
 
 > Mercredi 5 décembre à 19h
-Anarchistes contre le mur
-Point sur la lutte contre le mur et la colonisation en Palestine. Deux anarchistes israéliens nous parleront de leur lutte à travers la projection d'un film et d'une discussion.
+> Anarchistes contre le mur
+> Point sur la lutte contre le mur et la colonisation en Palestine. Deux anarchistes israéliens nous parleront de leur lutte à travers la projection d'un film et d'une discussion.
 
 > Mardi 4 décembre à 20h
-Repas féministe
-Chacune amène quelque chose à boire, manger, écouter... selon son envie. C'est en non-mixité femmes. C'est l'occasion de se rencontrer, de mettre en commun des envies, des projets, d'échanger des infos sur ce qui est organisé dans la région grenobloise par / pour des femmes.
+> Repas féministe
+> Chacune amène quelque chose à boire, manger, écouter... selon son envie. C'est en non-mixité femmes. C'est l'occasion de se rencontrer, de mettre en commun des envies, des projets, d'échanger des infos sur ce qui est organisé dans la région grenobloise par / pour des femmes.
 
 > Lundi 19 novembre à 18h
-Atelier d'écriture - Hip hop
-A partir de textes et de vidéos sur le hip hop, atelier sur les banlieues et ses habitantEs.
+> Atelier d'écriture - Hip hop
+> A partir de textes et de vidéos sur le hip hop, atelier sur les banlieues et ses habitantEs.
 
 > Dimanche 11 novembre à 18h
-Ciné-club - Panther de Mario Van Peebles
-En 1966, à Oakland en Californie, Bobby Seale et Huey P. Newton fondent le Black Panther Party. Ce film montre la genèse du mouvement d'émancipation des noirs américains et leur résistance contre la police.
-Projection suivie d'un apéro et d'une bouffe.
+> Ciné-club - Panther de Mario Van Peebles
+> En 1966, à Oakland en Californie, Bobby Seale et Huey P. Newton fondent le Black Panther Party. Ce film montre la genèse du mouvement d'émancipation des noirs américains et leur résistance contre la police.
+> Projection suivie d'un apéro et d'une bouffe.
 
 > Vendredi 26 octobre à 18h
-Luttes indiennes et environnementales en Amérique du Sud
-Soirée projection et discussion avec les témoignages d'activistes du Venezuela sur les thèmes de l'exploitation de charbon et de la résistance des communautées indiennes. On mangera certainement ensemble si vous avez faim.
+> Luttes indiennes et environnementales en Amérique du Sud
+> Soirée projection et discussion avec les témoignages d'activistes du Venezuela sur les thèmes de l'exploitation de charbon et de la résistance des communautées indiennes. On mangera certainement ensemble si vous avez faim.
 
 > Mardi 9 octobre à 20h
-Concert au 102
-Born Dead (anarcopunk ricain) + Hörror (D-Beat barcelonain) et Poupouille Orchestra (Punk de Saint-Etiain-42)
+> Concert au 102
+> Born Dead (anarcopunk ricain) + Hörror (D-Beat barcelonain) et Poupouille Orchestra (Punk de Saint-Etiain-42)
 
 > Dimanche 30 septembre à 18h
-Ciné-club - Docus ethnos
-Projection de documentaires ethnographiques pour nous rappeler que nous ne sommes pas le centre du Monde !
+> Ciné-club - Docus ethnos
+> Projection de documentaires ethnographiques pour nous rappeler que nous ne sommes pas le centre du Monde !
 
 > Jeudi 13 septembre à 18h
-Apéro No Border
-Dans le cadre de la mobilisation contre les centres de rétention en Europe, point sur les camps No Border de cet été et de celui à venir à Gatwick (UK)  du 19 au 24 septembre.
+> Apéro No Border
+> Dans le cadre de la mobilisation contre les centres de rétention en Europe, point sur les camps No Border de cet été et de celui à venir à Gatwick (UK)  du 19 au 24 septembre.
 
 > Vendredi 7 septembre à 18h
-Apéro de rentrée
+> Apéro de rentrée
 
 expo "femmes en prison"
 visible, jusqu'à début juillet, lors des permanences du local.
 
->  dimanche 10 juin à 19h
-ciné-club: projection du film "la raison du plus faible" - lucas belvaux-france 2006
-"Pour pouvoir offrir une mobylette à la femme de leur copain Patrick, trois hommes vont prendre les armes pour aller chercher l'argent là où  il est. Rêvant que quelque chose est encore possible pour sortir de leur détresse, ils vont tenter un très gros hold-up..."
- le film sera suivi d'un apéro / bouffe.
+> dimanche 10 juin à 19h
+> ciné-club: projection du film "la raison du plus faible" - lucas belvaux-france 2006
+> "Pour pouvoir offrir une mobylette à la femme de leur copain Patrick, trois hommes vont prendre les armes pour aller chercher l'argent là où  il est. Rêvant que quelque chose est encore possible pour sortir de leur détresse, ils vont tenter un très gros hold-up..."
+> le film sera suivi d'un apéro / bouffe.
 
->  vendredi 17 mai: dans le cadre du ladyfest à 14h
-discussion transgénérationnelle avec le collectif de femmes de plus de 50 ans (f+5).
-pourquoi chaque génération amène son "lot" de contestataires qui disparaissent de la contestation au cours des années de vie? cette hémoragie est-elle évitable? explicable?
-non-mixte femmes.
+> vendredi 17 mai: dans le cadre du ladyfest à 14h
+> discussion transgénérationnelle avec le collectif de femmes de plus de 50 ans (f+5).
+> pourquoi chaque génération amène son "lot" de contestataires qui disparaissent de la contestation au cours des années de vie? cette hémoragie est-elle évitable? explicable?
+> non-mixte femmes.
 
 > mercredi 16 mai: dans le cadre du ladyfest à 14h
-atelier langues des signes française. mixte.
+> atelier langues des signes française. mixte.
 
 > mardi 15 mai: dans le cadre du ladyfest à 14h
-atelier / discussion du projet de la caravane des femmes été 2007. non-mixte femmes.
+> atelier / discussion du projet de la caravane des femmes été 2007. non-mixte femmes.
 
 > lundi 14 mai: atelier d'écriture à 14h
-l'oppressionsexiste (liée au sexe et augenre): face visible, face cachée.
-atelier pour mettre des mots sur les mécanismes qui la font perdurer. non-mixte hommes.
-un atelier non-mixte femmes se déroulera en parrallèle, l'objectif étant de mettre en commun et confronter constats et analyses pour aller plus loin.
+> l'oppressionsexiste (liée au sexe et augenre): face visible, face cachée.
+> atelier pour mettre des mots sur les mécanismes qui la font perdurer. non-mixte hommes.
+> un atelier non-mixte femmes se déroulera en parrallèle, l'objectif étant de mettre en commun et confronter constats et analyses pour aller plus loin.
 
 > dimanche 13 mai: apéro / vernissage à 17h30
-expo "femmes en prison"
+> expo "femmes en prison"
 
 > vendredi 27 avril à 19h
-femmes en prison
-des mots pour dire la prison, des mots de femmes. autour de livres de la biblioblique, hébergée au local, on parlera d'histoires de femmes incarcérées, à partir de lectures: des témoignages, des résumés d'ouvrages, des extraits...
-pour que leurs mots ne soient pas oubliés.http://www.lustucrust.org/lesnainsaussi_prodenglish.html
+> femmes en prison
+> des mots pour dire la prison, des mots de femmes. autour de livres de la biblioblique, hébergée au local, on parlera d'histoires de femmes incarcérées, à partir de lectures: des témoignages, des résumés d'ouvrages, des extraits...
+> pour que leurs mots ne soient pas oubliés.http://www.lustucrust.org/lesnainsaussi_prodenglish.html
 
->  jeudi 26 avril: concert hors-les-murs à la poulie (ancien hôtel beausoleil - rue du phalanstère, grenoble) à 18h30 - prix libre
-à l'assault de la démocratie!
-contre l'insurrection électoraliste, grève générales et autogestion
-19h: projections de docus des groupes medvedkine
-20h30: dona maldad (punk/hc - vénézuela) + plaine crasse (puk/hc - grrr)          + tables de presse, miammiam vegan, distros...
-l'horaire sera respecté pour le voisinage, viendez à l'heure.
+> jeudi 26 avril: concert hors-les-murs à la poulie (ancien hôtel beausoleil - rue du phalanstère, grenoble) à 18h30 - prix libre
+> à l'assault de la démocratie!
+> contre l'insurrection électoraliste, grève générales et autogestion
+> 19h: projections de docus des groupes medvedkine
+> 20h30: dona maldad (punk/hc - vénézuela) + plaine crasse (puk/hc - grrr)          + tables de presse, miammiam vegan, distros...
+> l'horaire sera respecté pour le voisinage, viendez à l'heure.
 
->  lundi 23 avril: écoute collective à 19h
-rediffusion de l'émission anti-carcérale "les murs ont des oreilles". tous les 1er et 3ème mercredi du mois sur radio kadélioscope 97fm.
-l'émission qu'on vous propose d'écouter ensemble ce soir-là sera consacrée à l'impact de la prison sur la famille et les proches de détenuEs. la première demi-heure de l'émission diffusera la bande son d'un documentaire consacré à une femme dont le fils est mort en détention dans des conditions suspectes.
+> lundi 23 avril: écoute collective à 19h
+> rediffusion de l'émission anti-carcérale "les murs ont des oreilles". tous les 1er et 3ème mercredi du mois sur radio kadélioscope 97fm.
+> l'émission qu'on vous propose d'écouter ensemble ce soir-là sera consacrée à l'impact de la prison sur la famille et les proches de détenuEs. la première demi-heure de l'émission diffusera la bande son d'un documentaire consacré à une femme dont le fils est mort en détention dans des conditions suspectes.
 
 Dimanche 22 avril à 18h
 projection du film "animal factory" vf. (us-2000)
@@ -1664,32 +1571,30 @@ ce film est tiré d'un (excellent) roman d'edward bunker "la bête contre les mu
 le film sera suivi d'un apéro / bouffe.
 
 > mardi 3 avril à 19h
-repas auberge espagnole
-chacune amène quelque chose à boire, manger, écouter..., selon son envie. c'est en non-mixité femmes. c'est l'occasion de se rencontrer, de mettre en commun des envies, des projets, d'échanger des infos sur ce qui est organisé dans la région grenobloise par / pour des femmes.
-c'est tous les premiers mardi du mois au local autogéré.
- 
-> Dimanche 18 mars: ciné-club à 18h
-Projection du film "whisky" (argentine-uruguay 2004)
-"jacobo, la soixantaine, possède une usine de chaussettes, la seule chose qui compte dans sa vie monotone. marta est son employée de confiance. ne dépassant jamais les limites du travail, leur rapport est marqué par le silence et la routine des tâches quotidiennes. cette monotonie est soudainement réveillée par la visite inattendue du frère de jacobo, herman, qui vit à l'étranger et n'a pas été en contact avec son frangin depuis des années. dans un état d'urgence et dans ce contexte particulier, jacobo demande de l'aide à martha. il souhaite que celle-ci se fasse passer pour sa femme..."
-le film sera suivi d'un apéro / bouffe.
+> repas auberge espagnole
+> chacune amène quelque chose à boire, manger, écouter..., selon son envie. c'est en non-mixité femmes. c'est l'occasion de se rencontrer, de mettre en commun des envies, des projets, d'échanger des infos sur ce qui est organisé dans la région grenobloise par / pour des femmes.
+> c'est tous les premiers mardi du mois au local autogéré.
 
----
+> Dimanche 18 mars: ciné-club à 18h
+> Projection du film "whisky" (argentine-uruguay 2004)
+> "jacobo, la soixantaine, possède une usine de chaussettes, la seule chose qui compte dans sa vie monotone. marta est son employée de confiance. ne dépassant jamais les limites du travail, leur rapport est marqué par le silence et la routine des tâches quotidiennes. cette monotonie est soudainement réveillée par la visite inattendue du frère de jacobo, herman, qui vit à l'étranger et n'a pas été en contact avec son frangin depuis des années. dans un état d'urgence et dans ce contexte particulier, jacobo demande de l'aide à martha. il souhaite que celle-ci se fasse passer pour sa femme..."
+> le film sera suivi d'un apéro / bouffe.
+
+***
 
 ## 2006
 
-                                                                         
 > Samedi 16 Décembre à 18h
-Exposé sur l'autonomie italienne dans les années 70.
-Historique et réflexions sur un mouvement politique radical singulier par sa forme, son organisation et par sa démarche autonome vis-à-vis des partis et de s syndicats traditionels.
-L'exposé sera suivi d'un débat et d'un apéro/bouffe (non, ça sera pas de la soupe!).
+> Exposé sur l'autonomie italienne dans les années 70.
+> Historique et réflexions sur un mouvement politique radical singulier par sa forme, son organisation et par sa démarche autonome vis-à-vis des partis et de s syndicats traditionels.
+> L'exposé sera suivi d'un débat et d'un apéro/bouffe (non, ça sera pas de la soupe!).
 
 > Dimanche 10 Décembre: ciné-club à 18h
-Projection du film "Tan de repente" de Diego Lerman (Argentine-2003).
-"C'est l'histoire de deux punkettes lesbiennes, Mao et Lenine qui font une proposition indécente à Marcia, fille seule au monde. Séduite par leur franc-parler, Marcia se prend à leur jeu et les suit jusqu'à la mer.
-Très largement inspiré d'un roman de César Aira, Tan de repente est un road-movie aux boitillements comiques, ou la promesse de coucherie se transforme en histoire d'amour."
-La projection sera suivie d'un apéro/bouffe (ah, la soupe de légumes de saison du local!).
+> Projection du film "Tan de repente" de Diego Lerman (Argentine-2003).
+> "C'est l'histoire de deux punkettes lesbiennes, Mao et Lenine qui font une proposition indécente à Marcia, fille seule au monde. Séduite par leur franc-parler, Marcia se prend à leur jeu et les suit jusqu'à la mer.
+> Très largement inspiré d'un roman de César Aira, Tan de repente est un road-movie aux boitillements comiques, ou la promesse de coucherie se transforme en histoire d'amour."
+> La projection sera suivie d'un apéro/bouffe (ah, la soupe de légumes de saison du local!).
 
 > Jeudi 16 novembre - 20h - Squat La Colo (Le Percy / Trièves).
-NO REST + PLAINE CRASSE / RODRIGO D... NO FUTURO
-Concert hors les murs avec NO REST groupe punkhardcore brésilien, les stars grenobloises vieillisantes de PLAINE CRASSE et la projection du film RODRIGO D ... NO FUTURO sur la vie d'un punk colombien, à Medellin dans les années 80. Cela sera aussi l'occasion d'une petite présentation du mouvement anarcopunk sudaméricain.
-
+> NO REST + PLAINE CRASSE / RODRIGO D... NO FUTURO
+> Concert hors les murs avec NO REST groupe punkhardcore brésilien, les stars grenobloises vieillisantes de PLAINE CRASSE et la projection du film RODRIGO D ... NO FUTURO sur la vie d'un punk colombien, à Medellin dans les années 80. Cela sera aussi l'occasion d'une petite présentation du mouvement anarcopunk sudaméricain.
