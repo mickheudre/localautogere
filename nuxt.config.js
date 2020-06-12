@@ -1,6 +1,7 @@
+import path from 'path'
 
 export default {
-  mode: 'spa',
+  mode: 'universal',
   /*
   ** Headers of the page
   */
@@ -23,33 +24,52 @@ export default {
   ** Global CSS
   */
   css: [
+    '~assets/css/tailwind.css', 
   ],
   /*
   ** Plugins to load before mounting the App
   */
+ webfontloader: {
+  google: {
+    families: ['Crimson Text:400,700', "Montserrat:600,700", "Raleway:400,600,700","Bitter:400,800","Martel Sans:400,600","Hind","Source Sans Pro:400,600,700"],
+  }
+},
   plugins: [
-  ],
-  /*
-  ** Nuxt.js dev-modules
-  */
-  buildModules: [
-    // Doc: https://github.com/nuxt-community/nuxt-tailwindcss
-    '@nuxtjs/tailwindcss',
   ],
   /*
   ** Nuxt.js modules
   */
   modules: [
-    '@nuxt/content'
+    '@nuxt/content',
+    'nuxt-purgecss',
+    'nuxt-webfontloader',
   ],
   /*
   ** Build configuration
   */
-  build: {
-    /*
-    ** You can extend webpack config here
-    */
-    extend (config, ctx) {
+ build: {
+  extractCSS: true,
+  postcss: {
+    plugins: {
+      'postcss-import': {},
+      tailwindcss: path.resolve(__dirname, './tailwind.config.js'),
+      'postcss-nested': {}
+    }
+  },
+  preset: {
+    stage: 1 // see https://tailwindcss.com/docs/using-with-preprocessors#future-css-featuress
+  },
+  optimization: {
+    splitChunks: {
+      cacheGroups: {
+        tailwindConfig: {
+          test: /tailwind\.config/,
+          chunks: 'all',
+          priority: 10,
+          name: true
+        }
+      }
     }
   }
+}
 }

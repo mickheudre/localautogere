@@ -5,7 +5,19 @@
 ** Default: https://github.com/tailwindcss/tailwindcss/blob/master/stubs/defaultConfig.stub.js
 */
 module.exports = {
-  theme: {},
+  purge: [
+    './**/*.html',
+    './**/*.vue',
+    './**/*.jsx',
+  ],
+  theme: {
+    fontFamily: {
+      'serif': ['Crimson Text'],
+      'brand':['lack line'],
+      'sans': ['Source Sans Pro'],
+    }
+  },
   variants: {},
   plugins: []
 }
+
