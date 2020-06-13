@@ -1,7 +1,7 @@
 ---
 titre: Biblioblique
----
 
+---
 ## 2020
 
 **Samedi 22 février 20h00**  
@@ -46,8 +46,8 @@ Las vegan fête la sortie du fanzine de recettes du vegan fest qui avait eu lieu
 **Samedi 1er décembre** **à 17h**  
 Ouverture de la fanzinothèque, regroupant les archives zines de la scène punk/diy/féministe/squat grenobloise
 
-**Samedi 17 novembre à 14h  
-**Atelier couture de serviettes hygiéniques lavables
+\**Samedi 17 novembre à 14h  
+\**Atelier couture de serviettes hygiéniques lavables
 
 **Mercredi 7 novembre à 17h**_  
 _Vernissage de l'expo de gravures "nuit sur l'Allemagne", de clément moreau, sur la montée du nazisme dans les années 30.
@@ -59,7 +59,7 @@ Revue de presse contre les frontières
 Sortie du zine "ligne point mur", fanzine littéraire
 
 **Mardi 9 octobre à 18h**  
-Apéro concert avec DRYWUD (rap/noise/electro).   
+Apéro concert avec DRYWUD (rap/noise/electro).  
 _Fin du son à 20h max._
 
 **Samedi 6 octobre à 14h**  
@@ -109,157 +109,115 @@ Revue de presse contre les frontières
 Café polyamoureux
 
 **Jeudi 22 fevrier à 19h**  
-Vernissage l'exposition d'IVAN BRUN: entrée libre.   
+Vernissage l'exposition d'IVAN BRUN: entrée libre.  
 _L'expo sera ensuite visible durant les perms._
 
 **Dimanche 21 janvier à 19h**  
-Ciné club du local. _cycle "vengeance"_ première séance  
+Ciné club du local. _cycle "vengeance"_ première séance
 
 **Samedi 6 Janvier**  
 Friperie gratuite de 14h à 18h, amenez vos fringues a donner/echanger!  
 _Gateaux thé café etc..._
 
-
 ## 2017
 
-vendredi 29 décembre à 20h00:
-Nous avons le plaisir de recevoir michelle garza, cinéaste et musicienne, qui viendra nous présenter deux de ses
-courts-métrages réalisés en 2014 et 2016 au mexique (+d'autres surprises). nous proposons ensuite une discussion
-autour de son travail et des féminicides au mexique.
-20h apéro vegan 21h début des projs.
+**Vendredi 29 décembre à 20h  
+**Nous avons le plaisir de recevoir michelle garza, cinéaste et musicienne, qui viendra nous présenter deux de ses courts-métrages réalisés en 2014 et 2016 au mexique (+d'autres surprises). nous proposons ensuite une discussion autour de son travail et des féminicides au mexique.  
+_20h apéro vegan 21h début des projs_
 
-merccredi 6 décembre à 19h:
-\[cycle de discutaille de la Biblioblique, saison 1, épisode 2\]
-RDV au Local Autogéré le mercredi 6 décembre à 19h pour une discussion autour du livre
-"Ecopunk. Les punks, de la cause animale à l’écologie radicale", en présence de Dom Blake, co-auteur.
+**Mercredi 6 décembre à 19h  
+**\[cycle de discutaille de la Biblioblique, saison 1, épisode 2\]  
+RDV au Local Autogéré le mercredi 6 décembre à 19h pour une discussion autour du livre "Ecopunk. Les punks, de la cause animale à l’écologie radicale", en présence de Dom Blake, co-auteur.
 
-lundi 9 octobre:
-renconctre autour du livre
-"milot l'incorrigible" (plus d'infos à venir)
+**Lundi 9 octobre  
+**Rencontre autour du livre "milot l'incorrigible" (plus d'infos à venir)
 
-jeudi 28 septembre:
-apéro de rentrée, mix punk, bouffe vegan et boissons. 18h
+**Jeudi 28 septembre à 18h  
+**Apéro de rentrée, mix punk, bouffe vegan et boissons
 
-samedi 1er juillet 2017:
-Rencontre autour du recueil Entre un néant et un autre -- vingt nouvelles
-extraites du fanzine Ratcharge --
-fraichement (re)publié aux Éditions des mondes à faire. Des histoires de zone acide, de rouille suburbaine
-et de combat pour la vie, taillées sur mesure pour les adeptes de Bukowski, de Maximum Rock'n'roll et des
-clochards célestes d'hier comme aujourd'hui.
-Au programme >>> une présentation par l'auteur et une lecture par un acteur
-(qu'on espère) talentueux
+**Samedi 1er juillet  
+**Rencontre autour du recueil Entre un néant et un autre -- vingt nouvelles extraites du fanzine Ratcharge -- fraichement (re)publié aux Éditions des mondes à faire.  
+_Des histoires de zone acide, de rouille suburbaine et de combat pour la vie, taillées sur mesure pour les adeptes de Bukowski, de Maximum Rock'n'roll et des clochards célestes d'hier comme aujourd'hui.  
+_Au programme >>> une présentation par l'auteur et une lecture par un acteur (qu'on espère) talentueux  
+Apéro de fin d'année du local, mix dj, boissons et ambiance festive ++
 
-* apéro de fin d'année du local, mix dj, boissons et ambiance festive ++
+**Samedi 10 juin à 15h  
+**Presentation et projection sur les luttes et la répression au bakur (kurdistan du nord ouest, turquie), avec des militant-e-s de retour du kurdistan  
+15h: début de la présentation  
+17h: projection d'une fiction turque sur la répression au bakur discussion autour d'un buffet
 
-samedi 10 juin 2017 à 15h:
-presentation et projection sur les luttes et la répression au bakur
-(kurdistan du nord ouest, turquie), avec des militant-e-s de retour du kurdistan
-15h: début de la présentation
-17h: projection d'une fiction turque sur la répression au bakur
-discussion autour d'un buffet
+**Dimanche 28 mai à 19h  
+**Concert de soutien au local autogéré, avec youth avoiders, crete et paquerettes et stalled minds
 
-dimanche 28 mai 2017 à 19h:
-concert de soutien au local autogéré, avec youth avoiders, crete et paquerettes et stalled minds
+**Jeudi 13 avril à 19h  
+**Soirée mix, avec dj joss et dj carlito. punk/boissons/bouffe vegan
 
-Jeudi 13 avril 2017 à 19h:
-soirée mix, avec dj joss et dj carlito. punk/boissons/bouffe vegan
+**Jeudi 6 avril à 18h30  
+**Apéro de sortie d'un livret pour les voyages à vélo. bel objet sérigraphié! bouffe/musique
 
-Jeudi 6 avril 2017 à 18h30:
-apéro de sortie d'un livret pour les voyages à velo. bel objet sérigraphié!
-bouffe/musique
+**Jeudi 30 mars 2017 à 19h  
+**Apéro de sortie de la compil four 4 "synthetiseur 1"
 
-Jeudi 30 mars 2017 à 19h00:
-apéro de sortie de la compil four 4 "synthetiseur 1"
+**Jeudi 19 janvier 2017 à 18h  
+**Vernissage expo LXS AUSENTES série de portraits autour de l’abstention durant les présidentielles mexicaines en 2012  
+Présentation des linogravures et du fanzine qui resteront exposés durant un mois au Local Autogéré Petits fours, muffins et autres amuses-gueules vegan à prix libre Entrée libre
 
-Jeudi 19 janvier 2017 à 18h: LXS AUSENTES, vernissage expo
-LXS AUSENTES série de portraits autour de l’abstention durant les présidentielles mexicaines en 2012
+**Dimanche 15 janvier à 18h  
+**Documentaire sur l'histoire de l'anarchisme, seconde moitié. En revenant sur tous les grands événements de l’histoire sociale des deux derniers siècles, ce documentaire dévoile l’origine et le destin de ce courant politique. À partir d’images d’archives inédites ou oubliées, de témoignages et de documents exceptionnels, cette série documentaire raconte l’histoire d’un mouvement qui, de Paris à New York et de Tokyo à Buenos Aires, n’a eu de cesse de souffler son vent de liberté et de révolte sur le monde.  
+_90min un peu de bouffe vegan et d’ouverture de bar avant le film_
 
-Présentation des linogravures et du fanzine qui resteront exposés durant un mois au Local Autogéré
-Petits fours, muffins et autres amuses-gueules vegan à prix libre
-Entrée libre
-dimanche 15 janvier : seconde moitié.
-En revenant sur tous les grands événements de l’histoire sociale des deux derniers siècles, ce documentaire dévoile l’origine et le destin de ce courant politique.
-À partir d’images d’archives inédites ou oubliées, de témoignages et de documents exceptionnels, cette série documentaire raconte l’histoire d’un mouvement qui, de Paris à New York et de Tokyo à Buenos Aires, n’a eu de cesse de souffler son vent de liberté et de révolte sur le monde.
-à partir de 18h, durée de la séance : 90min
-un peu de bouffe vegan et d’ouverture de bar avant le film
-
-Dimanche 8 janvier 2017 à 18h00
-Projection d’un documentaire (récent) au local autogéré sur l’histoire de l’anarchisme.
-
-***
+**Dimanche 8 janvier à 18h  
+**Projection d’un documentaire (récent) au local autogéré sur l’histoire de l’anarchisme.
 
 ## 2016
 
-dimanche 11 décembre 2016 à 17:00
+**Dimanche 11 décembre  
+**_dès 17h_ Ré-inauguration et purge (à prix libre, svp) d’une partie du fond de notre bibliothèque, emprunts et dons possibles, et même souhaités  
+_dès 18h_ Concert : GIZMEDIUM (anarcho-folk-punk / Côte d’Azur) + MICHEL31 (drone / st-bru)
 
-dès 17h : ré-inauguration et purge (à prix libre, svp) d’une partie du
-fond de notre bibliothèque, emprunts et dons possibles, et même souhaités
+**Jeudi 7 juillet à 19h  
+**Apéro musical de fin de saison.
 
-dès 18h : concert : GIZMEDIUM (anarcho-folk-punk / Côte d’Azur) + MICHEL31
-(drone / st-bru)
+**Mercredi 8 juin à partir de 19h  
+**Discussion - les enjeux d'internet des personnes des collectifs Grésille et Rézine viendront discuter des enjeux d'internet autour de deux notions:  
+\-la neutralité du réseau et l'acentralisation d'internet  
+\-la maîtrise que l'on a de nos donées (personnelles et productions)
 
-jeudi 7 juillet à 19h
-apéro musical de fin de saison.
+**3 jours pour fêter les 10 ans du local autogéré**
 
-mercredi 8 juin à partir de 19h
-discussion - les enjeux d'internet
-des personnes des collectifs Grésille et Rézine viendront discuter des enjeux d'internet autour de deux notions:
+**Samedi 14 mai 14h  
+**Atelier cuisine vegan venez cuisiner avec nous des nuggets de seitan, des petits fours et des desserts... à partir de 18h apéro/dégustation. la partie musicale sera assurée par les "dj's" du local.
 
-* la neutralité du réseau et l'acentralisation d'internet
-* la maîtrise que l'on a de nos donées (personnelles et productions)
+**Vendredi 13 mai à partir de 18h  
+**Concert hors-les-murs au 102 (rue d'alembert) projections: salle du haut: "calle santa fe" - carmen castillo (163' - 2007) salle du bar: docus punk repas vegan concerts avec juggling jugulars (melodik @punk - finlande) + copcake (fastcore - saint-étienne) + ze revengers (noise - grrr)
 
-3 jours pour fêter les 10 ans du local autogéré
-samedi 14 mai
-14h - atelier cuisine vegan
-venez cuisiner avec nous des nuggets de seitan, des petits fours et des desserts...
-à partir de 18h
-apéro/dégustation. la partie musicale sera assurée par les "dj's" du local.
+**Jeudi 12 mai à 19h  
+**Projection d'un documentaire et discussions autour de la revue de presse frontières et politique migratoire européenne. Pourquoi on se propose ce temps, les lectures, échanges et analyses qu'on tente d'y faire, avec le collectif du grezo.
 
-vendredi 13 mai à partir de 18h
-concert hors-les-murs au 102 (rue d'alembert)
-projections:
-salle du haut: "calle santa fe" - carmen castillo (163' - 2007)
-salle du bar: docus punk
-repas vegan
-concerts avec juggling jugulars (melodik @punk - finlande) + copcake (fastcore - saint-étienne) + ze revengers (noise - grrr)
+**Samedi 30 avril à 19h  
+**La chorale des dissidents - chants révolutionnaires dj loafazo - mix de la yaute  
+Ciné-club - théma femmes/futurs dimanche 27 mars the handmaid's tale, volker schlöndorff (1990 - 109') "A la fin du XXe siecle, les Etats-Unis sont gouvernes par un mouvement integriste de droite. La pollution, les accidents nucleaires et les experiences genetiques ont rendu la plupart des femmes steriles. Celles qui sont encore fecondes sont placees comme reproductrices aupres des chefs de la nation, les "Commandants". C'est ainsi que Kate, qui voulait s'enfuir, est enlevee a sa famille pour servir de reproductrice au Commandant Fred... "  
+_repas vegan à 19h et projection à 20h30_
 
-jeudi 12 mai à 19h
-"projection d'un documentaire et discussions autour de la revue de presse frontières et politique migratoire européenne.
-Pourquoi on se propose ce temps, les lectures, échanges et analyses qu'on tente d'y faire, avec le collectif du grezo."
+**Samedi 19 mars à 17h  
+**Apéro pour la sortie du maximum cuvette numéro 5!
 
-samedi 30 avril à 19h
-la chorale des dissidents - chants révolutionnaires
-dj loafazo - mix de la yaute
+**Jeudi 10 mars  
+**_ciné-club - théma femmes/futurs  
+_Tank girl, rachel talalay (1995 - 104')  
+"2033. Après une catastrophe d'ordre mondial, la Terre n'est plus qu'un immense désert et l'eau devient le trésor le plus convoité. Dans ce no man's land peuplé de mutants, une jeune fille au look punk surnommée "Tank Girl", accompagnée de ses fidèles, tente de mettre à mal le système mis en place par un certain Kessler qui règne sur l'empire de l'eau et en gère la distribution à travers son entreprise "Water and Power"..."  
+_repas vegan à 19h et projection à 20h30_
 
-ciné-club - théma femmes/futurs
-dimanche 27 mars
-the handmaid's tale, volker schlöndorff (1990 - 109')
-"A la fin du XXe siecle, les Etats-Unis sont gouvernes par un mouvement integriste de droite. La pollution, les accidents nucleaires et les experiences genetiques ont rendu la plupart des femmes steriles. Celles qui sont encore fecondes sont placees comme reproductrices aupres des chefs de la nation, les "Commandants". C'est ainsi que Kate, qui voulait s'enfuir, est enlevee a sa famille pour servir de reproductrice au Commandant Fred... "
+**Jeudi 11 février  
+**_ciné-club - théma femmes/futurs  
+_born in flames, lizzie borden (1983 - 90')  
+"à new york, 10 ans après l'échec d'une révolution sociale qui a laissé en place la bureaucratie, la pression des groupes de droite et les structures oppressives et patriarcales, une bande de femmes rebelles et anarchistes, menée par une lesbienne noire, se soulève contre le gouvernement."  
+_repas vegan à 19h et projection à 20h30_
 
-repas vegan à 19h et projection à 20h30
-
-samedi 19 mars à 17h
-apéro pour la sortie du maximum cuvette numéro 5!
-
-ciné-club - théma femmes/futurs
-jeudi 10 mars
-tank girl, rachel talalay (1995 - 104')
-"2033. Après une catastrophe d'ordre mondial, la Terre n'est plus qu'un immense désert et l'eau devient le trésor le plus convoité. Dans ce no man's land peuplé de mutants, une jeune fille au look punk surnommée "Tank Girl", accompagnée de ses fidèles, tente de mettre à mal le système mis en place par un certain Kessler qui règne sur l'empire de l'eau et en gère la distribution à travers son entreprise "Water and Power"..."
-
-repas vegan à 19h et projection à 20h30
-
-ciné-club - théma femmes/futurs
-repas vegan à 19h et projection à 20h30
-
-jeudi 11 février
-born in flames, lizzie borden (1983 - 90')
-"à new york, 10 ans après l'échec d'une révolution sociale qui a laissé en place la bureaucratie, la pression des groupes de droite et les structures oppressives et patriarcales, une bande de femmes rebelles et anarchistes, menée par une lesbienne noire, se soulève contre le gouvernement."
-
-dimanche 28 février
-the stepford wives, bryan forbes (1975 - 115')
+**Dimanche 28 février  
+**_ciné-club - théma femmes/futurs  
+_the stepford wives, bryan forbes (1975 - 115')  
 "dans la petite ville de Stepford, les femmes sont entièrement soumises à leurs paresseux maris : elles s'occupent volontiers de toutes les tâches ménagères et font preuve d'un manque flagrant d'intelligence, alors que les hommes prennent toutes les décisions. Joanna et son amie Bobbie, s'inquiétant de cet état de fait, commencent à mener l'enquête. Elles ne sont pas au bout de leurs surprises... "
-
-***
 
 ## 2015
 
