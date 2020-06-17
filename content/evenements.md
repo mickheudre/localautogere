@@ -1,5 +1,6 @@
 ---
 titre: Evénements
+published: true
 ---
 
 ## 2020
@@ -221,7 +222,7 @@ _the stepford wives, bryan forbes (1975 - 115')
 
 ## 2015
 
-samedi 14 novembre
+**amedi 14 novembre**
 16h vide ton bac
 amène tes disques, à donner, échanger, vendre...
 19h apéromix
