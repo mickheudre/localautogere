@@ -4,7 +4,7 @@
   
   <!-- Logo text or image -->
   <div class="pl-6 md:pl-0 flex items-center justify-between">
-    <h1 :class="$route.path == '/' && !menuVisible ? 'opacity-0' : ''" class="leading-none text-2xl text-black">
+    <h1 :class="$route.path == '/' ? 'md:opacity-0' : ''" class=" leading-none text-2xl text-black">
       <nuxt-link class="no-underline font-brand uppercase text-2xl text-white md:text-black" to="/">
         Le Local<br> Autogéré
       </nuxt-link>
@@ -104,7 +104,7 @@ export default {
 }
 </script>
 
-<style>
+<style scoped>
 
 p {
  @apply mx-0 mt-4 mb-6;
