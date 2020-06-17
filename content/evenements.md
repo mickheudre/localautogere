@@ -222,16 +222,16 @@ _the stepford wives, bryan forbes (1975 - 115')
 
 ## 2015
 
-**Samedi 14 novembre**
-16h vide ton bac
-amène tes disques, à donner, échanger, vendre...
-19h apéromix
-dj thom et mick
+**Samedi 14 novembre**  
+16h vide ton bac  
+amène tes disques, à donner, échanger, vendre...  
+19h apéromix  
+dj thom et mick  
 
-**Jeudi 29 octobre à 20h**
-concert de Marisa Anderson (folkblues des states)
-comme d'hab il ya aura du miam vegan, à boire et on fera tourner un chapeau pour le défraiement des groupes.
-
+**Jeudi 29 octobre à 20h**  
+concert de Marisa Anderson (folkblues des states)  
+comme d'hab il ya aura du miam vegan, à boire et on fera tourner un chapeau pour le défraiement des groupes.  
+ 
 dimanche 5 juillet à 19h
 apéro concert de fin d'année avec gizmedium (folkpunk du sud) + banjoraf (banjo d'ici).
 
