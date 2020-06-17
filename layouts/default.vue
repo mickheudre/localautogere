@@ -104,7 +104,7 @@ export default {
 }
 </script>
 
-<style scoped>
+<style>
 
 p {
  @apply mx-0 mt-4 mb-6;
