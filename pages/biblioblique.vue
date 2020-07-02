@@ -9,21 +9,19 @@
 
 <script>
 export default {
-    scrollToTop: true,
-    async asyncData( {$content, params } ) {
+    
+  async asyncData( {$content, params } ) {
         const evenements = await $content('biblioblique').fetch()
     return { evenements }
   },
-  methods: {
-     backToTop: function() {
-    window.scroll({
-    top: 0,
-    left: 0,
-    behavior: 'smooth'
-  })
-
+    head () {
+    return {
+      title: `La Biblioblique`,
+      meta: [
+        { hid: 'description', name: 'description', content: 'La biblioblique est une bibliothèque libre, gratuite et sans inscription. Il est possible de venir emprunter un livre pendant les permanences du Local Autogéré' }
+      ]
     }
-  }
+  } 
 }
 </script>
 

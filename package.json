@@ -1,18 +1,18 @@
 {
   "name": "localautogere",
   "version": "1.0.0",
-  "description": "Le site du local autogéré",
+  "description": "Le local autogéré est un infoshop anarchiste et punk situé au 7 rue Pierre Dupont à Grenoble.",
   "author": "Mick",
   "private": true,
   "scripts": {
     "dev": "nuxt",
     "build": "nuxt build",
     "start": "nuxt start",
-    "generate": "nuxt generate"
+    "generate": "nuxt build && nuxt export"
   },
   "dependencies": {
-    "@nuxt/content": "^1.2.0",
-    "nuxt": "^2.12.2",
+    "@nuxt/content": "^1.3.2",
+    "nuxt": "^2.13.0",
     "tailwindcss": "1.2.0"
   },
   "devDependencies": {

@@ -3,7 +3,7 @@
         <div id="content" class="">
             <nuxt-content :document="evenements" class=""/>
         </div>
-        <a id="back-to-top" @click="backToTop" class="fixed bottom-0 mb-16 -mr-4 right-0 transform rotate-90 ">← Haut de la page</a>
+        <a id="back-to-top" @click="backToTop" class="fixed bottom-0 mb-24 -mr-4 right-0 transform rotate-90 ">← Haut de la page</a>
     </div>
 </template>
 
@@ -13,6 +13,19 @@ export default {
         const evenements = await $content('evenements').limit(1).fetch()
         console.log(evenements)
     return { evenements }
+  },
+    head() {
+    return {
+      title: `Evénements`,
+      meta: [
+        {
+          hid: "description",
+          name: "description",
+          content:
+            "Rencontres, concerts, expositions... Le local autogéré accueille différents événements tout au long de l'année."
+        }
+      ]
+    };
   },
   methods: {
      backToTop: function() {

@@ -1,12 +1,15 @@
 import path from 'path'
 
 export default {
-  mode: 'universal',
+  target: 'static',
   /*
   ** Headers of the page
   */
   head: {
     title: process.env.npm_package_name || '',
+    htmlAttrs: {
+      lang: 'fr',
+    },
     meta: [
       { charset: 'utf-8' },
       { name: 'viewport', content: 'width=device-width, initial-scale=1' },
@@ -29,11 +32,17 @@ export default {
   /*
   ** Plugins to load before mounting the App
   */
- webfontloader: {
-  google: {
-    families: ['Crimson Text:400,700', "Montserrat:600,700", "Raleway:400,600,700","Bitter:400,800","Martel Sans:400,600","Hind","Source Sans Pro:400,600,700"],
-  }
-},
+  webfontloader: {
+    google: {
+      families: ['Crimson Text:400,700', "Source Sans Pro:400,600,700"],
+    }
+  },
+  router: {
+    base: '/localautogere'
+  },
+  content: {
+    apiPrefix: 'localautogere'
+  },
   plugins: [
   ],
   /*

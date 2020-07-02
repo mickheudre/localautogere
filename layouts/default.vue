@@ -10,12 +10,10 @@
       </nuxt-link>
     </h1>
 
-    <a class="text-black hover:text-orange md:hidden" href="#">
-      <button class="block lg:hidden cursor-pointer ml-auto relative w-12 h-12 p-4" @click="showMenu">
+      <button class="block md:hidden cursor-pointer ml-auto mr-8 relative w-12 h-12 p-4" @click="showMenu">
       <svg :class="menuVisible ? 'hidden ' : ''" class="fill-current  md:text-black" xmlns="http://www.w3.org/2000/svg" viewBox="0 0 20 20"><path d="M0 3h20v2H0V3zm0 6h20v2H0V9zm0 6h20v2H0v-2z"/></svg>
       <svg :class="menuVisible ? '' : 'hidden '" class="fill-current text-white md:text-black" xmlns="http://www.w3.org/2000/svg" viewBox="0 0 20 20"><path d="M10 8.586L2.929 1.515 1.515 2.929 8.586 10l-7.071 7.071 1.414 1.414L10 11.414l7.071 7.071 1.414-1.414L11.414 10l7.071-7.071-1.414-1.414L10 8.586z"/></svg>
     </button>
-    </a>
   </div>
   <!-- END Logo text or image -->
   
@@ -38,11 +36,11 @@
           Biblioblique
         </nuxt-link>
       </li>
-      <li class="md:mx-6">
+      <!-- <li class="md:mx-6">
         <nuxt-link class="block no-underline hover:underline py-1 font-semibold text-lg text-white md:text-black" to="#">
           Liens
         </nuxt-link>
-      </li>
+      </li> -->
     </ul>
   </nav>
   <!-- END Global navigation -->
@@ -93,7 +91,7 @@
 export default {
   data () {
     return {
-      menuVisible: true
+      menuVisible: false
     }
   },
   methods: {

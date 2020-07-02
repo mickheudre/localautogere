@@ -9,20 +9,22 @@
 
 <script>
 export default {
-    scrollToTop: true,
     async asyncData( {$content, params } ) {
         const evenements = await $content('presentation').fetch()
     return { evenements }
   },
-  methods: {
-     backToTop: function() {
-    window.scroll({
-    top: 0,
-    left: 0,
-    behavior: 'smooth'
-  })
-
-    }
+  head() {
+    return {
+      title: `Présentation`,
+      meta: [
+        {
+          hid: "description",
+          name: "description",
+          content:
+            "Depuis 2005, le Local Autogéré est un infoshop, lieu d'activité, de rencontre, de lutte, d'échange et de diffusion d'information"
+        }
+      ]
+    };
   }
 }
 </script>
