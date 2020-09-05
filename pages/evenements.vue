@@ -11,7 +11,6 @@
 export default {
     async asyncData( {$content, params } ) {
         const evenements = await $content('evenements').limit(1).fetch()
-        console.log(evenements)
     return { evenements }
   },
     head() {

@@ -1,6 +1,7 @@
 <template>
     <div class="mt-16">
         <h1 class="font-brand text-4xl uppercase"> {{ evenements.titre }} </h1>
+        <img class="max-w-xs sm:max-w-md my-10 mx-auto" src="../assets/images/presentation.png">
         <div class="">
             <nuxt-content :document="evenements" class=""/>
         </div>
