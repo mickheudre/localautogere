@@ -5,6 +5,12 @@ published: true
 
 ## 2020
 
+**Samedi 21 novembre**  
+Présentation du livre Lettres d’insurgé/e/s de Fredy Perlman
+Bus Stop press, 2019, en présence de l'éditeur/traducteur 
+apéro & petite bouffe vegan  
+entrée à prix libre
+
 **Samedi 22 février 20h00**  
 Concert de SEB and the rhâââ dicks (one man punk rock band de Lyon).  
 apéro & petite bouffe vegan  
@@ -16,6 +22,11 @@ Petite bouffe vegan thé-café-chicorée.
 _Si vous voulez venir avec vos disques, contactez-nous à lokal_autogere(at)no-log.org_
 
 ## 2019
+
+**Vendredi 25 octobre**  
+Concert de Special Friend (indie) et Docks (slowcore)
+apéro & petite bouffe vegan  
+entrée à prix libre
 
 **Mercredi 15 mai**  
 Présentation du livre "le pari de l'autonomie"
