@@ -243,44 +243,44 @@ dj thom et mick
 concert de Marisa Anderson (folkblues des states)  
 comme d'hab il ya aura du miam vegan, à boire et on fera tourner un chapeau pour le défraiement des groupes.  
  
-dimanche 5 juillet à 19h
+**dimanche 5 juillet à 19h**
 apéro concert de fin d'année avec gizmedium (folkpunk du sud) + banjoraf (banjo d'ici).
 
-ATTENTION CHANGEMENT DE DATE: jeudi 18 juin (au lieu de vendredi 19 juin) à 19h
+**jeudi 18 juin à 19h**
 ciné-club
 g.a.r.i! de nicolas reglat (france-2013)
 espagne, septembre 1973. cinq membres du m.i.l (mouvement ibérique de libération) risquent d'être condamnés à mort par la justice franquiste.
 en france, plusieurs groupes d'activistes décident alors d'unir leurs forces dans un réseau appelé g.a.r.i (groupe d'actions révolutionnaire internationalistes).
 
-dimanche 7 juin à 19h
+**dimanche 7 juin à 19h**
 ciné-club
 calle santa fe de carmen castillo (chili-1997)
 l'engagement politique, au plus près de la vérité d'une femme chilienne, carmen castillo, qui survit à son compagnon, miguel enriquez, chef de la résistance contre la dictature de pinochet, mort au combat, rue santa fe, dans les faubourgs de santiago du chili, le 5 octobre 1974.
 
-mardi 26 mai à 18h00
+**mardi 26 mai à 18h00**
 concert avec beyond the borders
 groupe letton habitant à barcelone, qui entame une deuxième tournée pour récolter des fonds, pour acheter des vélos pour les enfants d'un orphelinat à Egrgeme en lettonie. le groupe présentera plus en détail son projet.
 le concert attaquera à 19h précise pour le bien-être de nos voisins, leur musique n'étant pas vraiment accoustique!
 
-samedi 23 mai à 19h
+**samedi 23 mai à 19h**
 le retour de l'apéro musical! c'est dj pp qui s'y colle (à rustine).
 
-vendredi 10 avril à 18h
+**vendredi 10 avril à 18h**
 rencontre et vernissage pour la sortie de "de l'autre côté, histoire de l'immigration maghrébine".
 une douzaine de planches sérigraphiées tirées du livre de coline picaud. l'expo sera visible jusqu'au 15 mai.
 "Cette bande dessinée de reportage réunit des témoignages de Maghrébins venus s'installer en France, plus précisément à Grenoble.
 A travers leur voix se racontent et se dessinent plusieurs époques : les Trente Glorieuses marquées par les luttes sociales et politiques, et la période actuelle avec des récits de personnes arrivées en France dans la dernière décennies. Ces histoires de Tunisiens, Marocains et Algériens ont en commun l'amertume de l'exil et le rêve d'une vie meilleure."
 
-samedi 28 février à 19h
+**samedi 28 février à 19h**
 concert hors-les-murs au 102 (rue d'alembert)
 mr.martin et manuel (blues de punk - grrr) + bloc (nyhc - annecy). après quasi 20 ans de silence, le quatuor se reforme et s'arrêtera à grenoble pour clore sa triomphale tournée du pays dauphinois + zero gain (punkrock - sainté).
 
-jeudi 12 février à 19h
+**jeudi 12 février à 19h**
 rencontre + discussion
 Féminismes et luttes diverses, quelles interférences, quels enrichissements, quelles ruptures?
 Les dynamiques et les luttes féministes à Grenoble sont fortes depuis longtemps. Que portent-elles? Que nous apportent-elles sur d'autres terrains? Par rapport aux réflexions, pratiques et analyses, quels sont leurs regards, analyses et évolutions?
 
-samedi 31 janvier à 17h
+**samedi 31 janvier à 17h**
 projection + discussion
 "Playa Coloniale", film de Luc Renaud et Martin Bureau, Québec, 2013. 81 minutes.
 "Pourquoi endurer l'hiver et la vie effrénée quand on peut se payer une semaine "de rêve" dans un tout inclus à Cuba ?"
@@ -294,58 +294,57 @@ Rodolphe Christin, auteur de "L'Usure du monde, critique de la déraison  touris
 
 ## 2014
 
-lundi 22 décembre à 18h
+**lundi 22 décembre à 18h**
 radios libres, féminisme et autogestion à barcelone
 présentations, projections et discussions avec des membres de radio bronka (27 ans d'autogestion sur les ondes) et rebeldes sin sombra (émission féministe).
 
-dimanche 14 décembre à 19h30
+**dimanche 14 décembre à 19h30**
 ciné-club - théma punk
 "don't need you: the herstory of riot grrr - kerri koch - 40mn - usa - 2005
 Un documentaire retraçant les débuts du mouvement Riot Grrrl sur la scème musicale indépendante des années 90, aux USA. On y voit comment le mouvement féministe est devenu un réseau révolutionnaire underground dédié aux femmes et basé sur la musique, l'écriture et le militantisme.
 
-vendredi 5 décembre à 19h
+**vendredi 5 décembre à 19h**
 discussion sur les éditions militantes
 pourquoi, quel contenu, comment, pour qui, quelles alternatives au marché du livre peut-on mettre en place?
 
-ANNULE !  samedi 22 novembre à 19h30  ANNULE !
+ANNULE !  **samedi 22 novembre à 19h30**  ANNULE !
 concert hors-les-murs au 102 (rue d'alembert) - prix libre
 mr martin, le lion néron et le tigre agir (blues de punk - grrr) + 2 autres groupes (les noms tout bientôt).
 y aura des distros, du miam vegan...
 
-dimanche 16 novembre à 19h
+**dimanche 16 novembre à 19h**
 ciné-club - théma punk
 "noise & resistance" - francesca airaza andrade et julia ostertag - 87mn - allemagne - 2011
 "ll y a d’autres moyens. Commerce, capital et consommation ne sont pas des besoins irrévocables du monde d’aujourd’hui." A travers ce documentaire percutant, Francesca Araiza Andrade et Julia Ostertag montrent que nombreux sont ceux qui en sont convaincus. Ceux-ci, souvent catalogués comme des perturbateurs et des producteurs de nuisances sonores, s’avèrent être des éléments de résistance indispensables. Ici, le punk n’est ni une mode dépassée, ni une relique poussiéreuse, mais l’expression d’un mode de vie. Les réalisatrices se sont immiscées au coeur d’une scène rebelle aussi expressive que dynamique...
 
-samedi 18 octobre à 17h
+**samedi 18 octobre à 17h**
 discussion - center parcs et le tourisme
 discussion présentée par le monde à l'envers, henri mora (1) et rodolphe christin (2)
 Après l’avis défavorable émis par la  commission d’enquête publique concernant la loi sur l’eau, après l’avis favorable émis par le Coderst et en attendant la décision du préfet de l’Isère, nous vous proposons de revenir sur le projet de construction du Center Parcs de Roybon dans les Chambarans et sa contestation, mais aussi sur le tourisme en général ; puisqu’il est quelquefois proposé comme alternative au tourisme artificiel hors sol, un tourisme doux adapté au territoire. Il sera ainsi question de savoir pourquoi le tourisme est-il cet objet consensuel si peu attaqué par l’intelligence critique, alors qu’il est le pur produit du capitalisme triomphant. L’histoire du tourisme est étroitement liée à l’histoire du capitalisme et l’on ne peut comprendre l’un sans comprendre l’autre, attaquer l’un sans attaquer l’autre.
 (1): Auteur de Chambard dans les Chambarans – S’opposer à Center Parcs et à la marchandisation du monde, Le Monde à l’envers, 2011.
 (2): Auteur du Manuel de l’antitourisme, Yago, 2008 et de L’Usure du monde – Critique de la déraison touristique, L’Échappée, 2014.
 
-dimanche 12 octobre à 19h
+**dimanche 12 octobre à 19h**
 ciné-club - théma punk
 "the punk syndrome" - jukka kärkkäinen et j-p passi - 85mn - finlande - 2012
 le quotidien de Pertti Kurikan nimipäivät. les quatre membres du groupe sont handicapés mentaux. Ils jouent leur musique avec fierté et conviction. on suit le groupe de la salle de répétition à la scène. Ils aiment, ils boivent, ils se disputent. on prend la mesure du mouvement punk : la réponse des rejetés de la société, un véritable coup de pied dans les valeurs établies et les idées reçues.
 
-samedi 27 septembre à 16h
+**samedi 27 septembre à 16h**
 braderie / apéro musical
 vu le succès de la première édition, on remet ça. braderie (cd's, vinyls, zines, brochures...) + mix avec mr. nada.
 
-jeudi 10 juillet à 19h
+**jeudi 10 juillet à 19h**
 apéromix de fin d'année
 c'est dj narta qui s'y colle (90's passion).
 
-dimanche 22  juin à 19h
+**dimanche 22  juin à 19h**
 ciné-club
 "das experiment" de oliver hirschbiegel (114' - 2001)
 Afin d'étudier scientifiquement le comportement humain, le professeur Thon enferme vingt volontaires, des hommes ordinaires, dans un univers carcéral. Huit d'entre eux sont désignés pour être les "gardiens", les douze autres étant les "prisonniers". La règle est simple : comme dans une vraie prison, les détenus doivent obéir aux gardiens qui sont chargés de faire régner l'ordre.
 Progressivement, la situation se détériore, la frontière entre l'expérience et la réalité devient de plus en plus floue.
-
 miam vegan après la projection.
 
-vendredi 16 mai
+**vendredi 16 mai**
 journée de soutien à l'abc bièlorusse et au local autogéré à la baf (2 chemin des alpins)
 18h: discussion/débat avec l'abc:
 
@@ -358,7 +357,7 @@ journée de soutien à l'abc bièlorusse et au local autogéré à la baf (2 che
   os replicantes (punkrock légende do brazil) + Bozhe moÏ! Orkestra (surf - grrr)
   y aura du miam vegan
 
-samedi 3 mai à 20h
+**samedi 3 mai à 20h**
 lectures insulaires de la cie sisMa:
 HorS
 c’est la lecture jouée de plusieurs textes
@@ -366,154 +365,150 @@ c’est une île le temps de la lecture et plus si affinités
 c’est autour, sur, en plein dans, centré sur la marge
 c’est des mouettes, du jeu et trois insulaires
 
-dimanche 27 avril à 19h
+**dimanche 27 avril à 19h**
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-mercredi 9 avril à 19h
+**mercredi 9 avril à 19h**
 concert
 craig sutton aka the flamenco thief (flamenco with loops).
 
-dimanche 6 avril à 19h
+**dimanche 6 avril à 19h**
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-dimanche 30 mars à 19h
+**dimanche 30 mars à 19h**
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-samedi 29 mars à 19h
+**samedi 29 mars à 19h**
 apéro vernissage de l'expo "barbie n'existe pas" d' aurélien benoist.
 gravures et sérigraphies sur l'image que renvoie barbie dans notre société.
 
-jeudi 27 mars à 18h
+**jeudi 27 mars à 18h**
 Stratégies de lutte animalistes
 Début février, le local recevait l'ex-Scalp Reflex-Paris à propos de son texte évoquant les raisons de sa dissolution et les limites des stratégies de lutte jusqu'à maintenant adoptées par les groupes antifascistes et plus largement anticapitalistes. Ce texte trouve un écho singulier dans l'appel à "Pour l'abolition du véganisme, pour  l'abolition de l'esclavage" (http://abolitionduveganisme.blogspot.fr/).
 Y sont en effet décrites deux stratégies de lutte bien différentes : la conversion individuelle et le débat public. Ces deux tendances ne sont pas l'apanage des mouvements pro-animaux mais traversent bien souvent toutes les luttes sociales et politiques. Il nous semble donc important d'y revenir ce soir en présence de militants de la cause animale.
 La soirée-discussion présentera différentes actions et stratégies de lutte qui animent ces dernières années les mouvement animaliste et sera l'occasion d'échanger sur les limites ou le potentiel de nos pratiques dans nos propres luttes (féministes, anticarcérales, anticapitalistes, antitechno...).
 
-dimanche 16 mars à 19h
+**dimanche 16 mars à 19h**
 ciné-club
 ciné-club féministe - cycle "femmes et western". soirée en non-mixité.
 
-jeudi 27 février à 19h
+**jeudi 27 février à 19h**
 apéro mix sans alcool
 c'est dj manu qui s'y colle pour cette fois. non, il n'y aura pas que de la surf music...
 
-mercredi 12 février à 19h
+**mercredi 12 février à 19h**
 soirée en soutien à l'envolée - projection + musique
 enfermés vivants de felix gonzalez-debats (90')
 "2 anciens prisonniers et un acteur sont invités dans un décor de cellule.
 Tout les 3 vont jouer dans une fiction racontant le quotidien de 2 taulards chamboulé par la venue de Jean, « l’arrivant ».
 Ben et Franc ont vécu une incarcération différente mais tout aussi difficile. Ils se livreront tantôt avec spontanéité, tantôt avec recul, en allant d’anecdotes en réflexions théoriques. Jean se nourrira de cette rencontre pour renforcer son personnage fictionnel, mais également pour se forger sa propre opinion sur la prison…"
 
-vendredi 7 février à 19h
+**vendredi 7 février à 19h**
 réflexions et perspectives sur les luttes radicales
 Il y un an, le SCALP-Reflex-Paris annonçait sa dissolution après plus de 25 années d’activisme. Un long texte expliquait les raisons de cette décision. Les deux dernières décennies ont vu de nombreux changements politiques et sociaux. Le fascisme s’est drapé de respectabilité, les mouvements militants traditionnels ont perdu de leur audience quand elles ne sont pas totalement décrédibilisées, les groupes plus radicaux sont souvent dans l’impasse. Pour ses membres, le SCALP-Reflex n’avait plus de raison d’être dans ce contexte. Il n’est pour autant pas question d’abandonner toute volonté de lutte. Il faut peut être simplement réinventer ce que cela veut dire.
-
 Pour évoquer tous ces sujets, pour imaginer un autre futur, venez rencontrer des membres de l’ex-SCALP Paris au Local Autogéré.
 
-pour lire le texte sur la dissolution
-
-dimanche 26 janvier à 19h
+**dimanche 26 janvier à 19h**
 ciné-club
 the blackpower mixtape 1967-1975 de goran olsson(2011-93')
 "Ce documentaire retrace l'évolution du mouvement Black Power de 1967 à 1975 au sein de la communauté noire. Le film associe musique et reportages (des rushs en 16mm restés au fond d'un placard de la télévision suédoise pendant plus de trente ans), ainsi que des interviews de différents artistes, activistes ou musiciens qui sont des piliers de la culture afro-américaine."
-
 miam vegan après la projection.
 
 ***
 
 ## 2013
 
-jeudi 19 décembre à 19h
+**jeudi 19 décembre à 19h**
 apéromix
 dj tom nous proposera ses meilleurs morceaux de noël.
 
-dimanche 15 décembre à 19h
+**dimanche 15 décembre à 19h**
 ciné-club
 this is not california - marten piersel (95')
 filmé comme un documentaire, ce film retrace l'émergence de la culture lié au skate en allemagne de l'est au début des années 80.
 
-dimanche 17 novembre à 19h
+**dimanche 17 novembre à 19h**
 ciné-club
 the gladiators - peter watkins (1969 - 69')
 "Les plus grandes puissances internationales, alignées  et non-alignées , craignant la possibilité d'une nouvelle guerre mondiale, décident de l'empêcher en canalisant les pulsions agressives de l'homme. Elles forment une Commission Internationale qui s'emploie à organiser des combats entre des soldats de différents pays. Ces compétitions, qui peuvent aller jusqu'à la mort, sont appelées Jeux de la Paix - elles sont sponsorisées et retransmises par satellite dans le monde entier. Le film se concentre sur le Jeu 256, qui se déroule dans le Centre International des Jeux de la Paix près deStockholm, sous le contrôle d'un puissant ordinateur. Les arbitres décident d'éliminer un homme et une femme appartenant à des équipes opposées mais qui tentent de s'approcher, considérant qu'ils mettent ainsi en danger la stabilité du système."
 
-samedi 19 octobre
+**samedi 19 octobre**
 concert hors-les-murs au 102 (rue d'alembert) en soutien au local autogéré
 19h: repas vegan
 20h: concert avec inner conflict (punkrock mélodique - germoney) + chicken's call (melodic @punk - grrr).
 
-samedi 5 octobre à 16h
+**samedi 5 octobre à 16h**
 braderie / apéro musical
 on vous invite à notre première braderie (cd's, vinyls, zines, brochures...). c'est dj bang sue qui animera la partie musicale de cette journée.
 
-vendredi 5 juillet
+**vendredi 5 juillet**
 concert hors-les-murs au 102 (rue d'alembert) en soutien au local autogéré
 19h: repas vegan
 20h: concert avec tuna (punkrock - brésil) + torino (punkrock - lyon)  + plaine crasse (@punk - grrr)
 
-jeudi 20 juin à 19h
+**jeudi 20 juin à 19h**
 apéro musical
 concert accoustique avec giz medium (punkfolk - nice)  et alpes à lâche (banjo + voix) . ça sera l'occasion de faire le traditionnel apéro avant la fermeture estivale.
 
-vendredi 14 juin à 14h
+**vendredi 14 juin à 14h**
 dans le cadre du festival: c'est l'anarchie!  atelier d'écriture
 oubliez l'angoisse des dissertations et venez partager un moment ludique pour exercer votre plume grâce à
 des contraintes simples et accessibles. une autre manière de dire et de penser ensemble le monde que nous voulons.
 (de 14h à 17h en mixité).
 
-samedi 8 juin à 19h
+**samedi 8 juin à 19h**
 rencontre avec sea shepherd
 projections (extrait de "shark water"-10mn  et "30 ans de combat"- 30mn) et discussion autour des campagnes de sea shepherd.
 le repas sera assuré par les amiEs de las vegan.
 
-samedi 25 mai à 14h
+**samedi 25 mai à 14h**
 atelier de cuisine vegan
 le lokal revisite les recettes de "vegan black metal chef".
 
-mercredi 15 mai à 19h
+**mercredi 15 mai à 19h**
 soirée pour la sortie de "ramasser les miettes"
 brochure/compilation sur l'histoire du mouvement punk aka "le punk pour les nulLEs".
 
-samedi 11 mai à la baf (2 chemin des alpins - grrr)
+**samedi 11 mai** à la baf (2 chemin des alpins - grrr)
 concert hors-les-murs
 19 h - bouffe vegan
 20h - concert
 juggling jugulars (punk/hc mélodique - finlande) + chicken's call (@punk mélodique - grrr) + richard durn (fast déglinguo core - nancy)
 
-dimanche 5 mai à 15h
+**dimanche 5 mai à 15h**
 atelier écriture dalidark
 c'est toujours non-mixte, ça change juste de jour pour ce mois.
 
-mardi 9 avril à 19h
+**mardi 9 avril à 19h**
 La crise grecque s’invite au local autogéré
 Par la projection de quelques courts-métrages, des regards posés par des vidéastes, des cyclistes, des grapheurs, des bergers, des migrants, des anonymes sur la situation en Grèce depuis 2008 ou comment vivre et résister à l’heure de la mise au pas et de la normalisation ultralibérale. Les projections seront suivies d’une discussion et d’une bouffe vegan.
 
-samedi 23 mars à 19h
+**samedi 23 mars à 19h**
 apéro-vernissage "objets perdus et trouvés dans le bruit"
 expo de photos de concerts punk/hc de rené olvera (mexique). l'expo sera visible jusqu'à fin avril.
 
-jeudi 21 mars à la baf (2 chemin des alpins - grrr)
+**jeudi 21 mars** à la baf (2 chemin des alpins - grrr)
 concert hors-les-murs
 19 h - bouffe vegan
 20h - concert
 schaeffer (emocrust - suisse) + clot (noise punk - amiens) + ?
 altercado a du annulé sa tournée, un des membres étant bloqué en russie suite au refus de la finlande de le laisser rentrer dans l'espace shengen.
 
-samedi 9 février  à 14h
+**samedi 9 février  à 14h**
 atelier de cuisine vegan
 le retour des ateliers. on cuisine touTEs ensembles et après on mange.
 
-dimanche 3 février à 18h
+**dimanche 3 février à 18h**
 ciné-club
 projection de la brune et moi de philippe puicouyoul (1980 - 55') + reportage sur le 1er fest punk en france à de mont-de-marsan en 1976.
 
-samedi 26 janvier
+**samedi 26 janvier**
 le lokal envahit la luttine (infoshop à lyon, rue montesquieut).
 
-dimanche 13 janvier à 18h
+**dimanche 13 janvier à 18h**
 ciné-club
 noise & resistance de julia ostertag et francesca araiza andrade (2009/2010 - 90')
 les deux réalisatrices nous proposent une immersion dans le milieu punk activiste européen.
@@ -522,77 +517,77 @@ les deux réalisatrices nous proposent une immersion dans le milieu punk activis
 
 ## 2012
 
-mardi 18 décembre à 19h
+**mardi 18 décembre à 19h**
 taenia solium party
 Apéro pour la sortie du cd des Derniers Sur Le Rap, pour la sortie du fanzine collectif "Maximum Cuvette", et pour la sortie du numéro 19 du Nanozine.
 miam-miam, glou-glou et concert des Derniers Sur Le Rap.
 
-dimanche 18 novembre à 18h
+**dimanche 18 novembre à 18h**
 ciné-club - cycle rockumentaire - 3ème volet
 anvil: the story of anvil de sacha gervasi (2008)
 A l'âge de quatorze ans, Steve "Lips" Kudlow et son meilleur ami Robb Reiner font le serment de faire de la musique ensemble toute leur vie durant. Leur groupe de heavy metal Anvil va influencer de nombreux groupes tels que Metallica, Slayer et Anthrax. En 1982, les membres du groupe Anvil sont considérés comme "les demi-dieux du heavy metal canadien". Mais le triomphe est éphémère.
 
-dimanche 4 novembre
+**dimanche 4 novembre**
 ciné-club - cycle rockumentaire - 2ème volet
 metallica - some kind of monster de joe berlinger et bruce sinofsky (2004)
 Ce qui commence comme un simple documentaire sur la réalisation de l'album st-anger prend une tournure plus personnelle par l'exploration des problèmes relationnels des membres du groupe les uns avec les autres et des conflits lors du processus d'écriture.
 
-dimanche 21 octobre à 18h
+**dimanche 21 octobre à 18h**
 ciné-club - cycle rockumentaire - 1er volet
 spinal tap de rob reiner (1984)
 Le groupe de hard-rock britannique Spinal Tap fait fureur. Les trois jeunes musiciens fougueux de cette bruyante formation rendent les filles folles et font salle comble à chaque concert. Le reporter Marty DiBergi, qui les a découverts et lancés, prend sa caméra et décide de filmer leur tournée. Une tournée pas comme les autres...
 samedi 6 octobre à 15h
 aprèm dalidark
 
-jeudi 4 octobre
+**jeudi 4 octobre**
 apéro + projection
 18h: apéro
 19h: projection de "la brune et moi" (philippe puicouyoul - 1980 - 55').
 un important homme d'affaire tombe amoureux d'une jeune punkette. bien décidé à faire d'elle une star, il décide de réunir les meilleurs musiciens de paris.
 (taxi girl, dogs, edith nylon, marquis de sade...)
 
-dimanche 30 septembre à 19h
+**dimanche 30 septembre à 19h**
 musique et théatre
 florence mekouyenski (crass vs. anne sylvestre) +  "sous la lune" par la cie la tramontane (ombres, marionnette et musique)
 "Sous la lune, le dernier rebelle de Vieille Nuit parle avec son lampadaire... c'est dur d'affronter la solitude mais aussi parfois de transmettre quelque chose. Et si ce monde ne pouvait pas changer, que ferons nous ?"
 
-dimanche 17 juin à 19h
+**dimanche 17 juin à 19h**
 ciné-club - cycle de documentaires sur le punk
 second volet avec, cette fois, les minutemen.
 we jam econo: the story of the minutemen de tim irwin (2005).
 retour sur ce groupe atypique du début des années 80. interviews de mike watt et george hurley, live, interventions de ian mc kaye, henry rollins, thurston moore...
 miammiam vegan après la proj.
 
-lundi 11 juin à 19h
+**lundi 11 juin à 19h**
 rencontre / lecture
 aaron cometbus passe par greville. soirée à ne pas manquer s'il en est!
 auteur américain du plus vieux fanzine punk encore en activité (31 ans), cometbus. A l'occasion de la traduction en français du dernier numéro du fanzine, il fait quelques dates en france avec la personne qui a traduit le zine...
 Présentation du dernier numéro, "En chine avec Green Day?":
 "Aaron cometbus, auteur issu de la scène underground, est connu pour être resté fidèle à son éthique punk et son approche Do It Yourself. Lorsque Green day l'invite sur leur tournée asiatique, ce sont deux styles de vie radicalement différents qui se retrouvent côte à côte. Vingt ans auparavant, ils voyageaient ensemble, amis avant que le groupe ne trouve gloire et fortune. Et maintenant, peuvent-ils reprendre la route? Quelle sera l'issue de ces retrouvailles?"
 
-dimanche 3  juin à 19h
+**dimanche 3 juin à 19h**
 ciné-club - cycle de documentaires sur le punk
 le 1er volet sera consacré aux thugs.
 "come on people" de julien bossé (2012).
 ce docu revient sur la reformation des thugs en 2008 pour le festival anniversaire de sub pop.
 miammiam vegan après la proj.
 
-samedi 2 juin à 14h
+**samedi 2 juin à 14h**
 le collectif dalidark vous invitent pour un après-midi en non-mixité femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-jeudi 31 mai à 19h
+**jeudi 31 mai à 19h**
 apéro musical avec dj so et vernissage de l'expo "archives et fonds de tiroirs" - rétrospectives en affiches, flys, zines... de la scène grenobloise des 80's à aujourd'hui. expo visible jusqu'à fin octobre.
 
-vendredi 11  mai à 19h
+**vendredi 11  mai à 19h**
 concert hors-les-murs au 102
 19h30: projection de "noise and resistance"   de julia ostertag et francesca araiza andrade (2009/2010 - 90 mn).
 "Noise and Resistance" is an inspiring journey through Europe's contemporary utopia, to subcultural places of desire where unity derives from autonomy along with the best punk sound you've heard for years. 21h: concert avec no rest (punkhc - brésil) + 2 autres groupes à confirmer.
 miammiam vegan
 
-samedi 5 mai à 14h
+**samedi 5 mai à 14h**
 le collectif dalidark vous invitent pour un après-midi en non-mixité femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-dimanche 22 avril à 18h
+**dimanche 22 avril à 18h**
 \-La pitrerie électorale en cours vous afflige ou vous fait pleurer?
 Certes...mais le local autogéré a parfois aussi envie d'en rigoler...
 \-Il y a 5 ans, de rage, vous avez jeté votre télé par la fenêtre?
@@ -605,21 +600,21 @@ Et il parait même qu'il y aura des plateaux télé vegan, punks, et passion!
 \-Une soirée électorale au local autogéré???
 Et pourquoi pas!
 
-mardi 17 avril à 19h
+**mardi 17 avril à 19h**
 L'infotour NoBorder passe à grenoble pour présenter les activités Noborder à Calais, ville frontière vers l'Angleterre, pour surveiller et prévenir les violences policières et soutenir les migrant-es qui tentent de passer. Ce sera aussi le moment pour prendre des informations sur les camps NoBorder de Düsseldorf-Cologne et de Stockholm et d'en savoir plus sur la guerre aux migrant-es menée par l'Europe par le biais de l'agence Frontex. Pour alimenter la discussion, on passera des extraits de vidéos issues des luttes pour et contre les migrations.
 et sinon, comme d'hab au local, cela sera  vegan, punk et passion!
 
-samedi 7 avril à 14h
+**samedi 7 avril à 14h**
 le collectif dalidark vous invitent pour un après-midi en non-mixité femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-samedi 10 mars à 19h
+**samedi 10 mars à 19h**
 benoît derotti et sa guitare enflammeront la local au son du flamenco!
 
-samedi 3 mars à 14h
+**samedi 3 mars à 14h**
 Le collectif Dalidark vous invite au Local Autogéré pour une après-midi en non-mixité
 femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-mercredi 29 février à 19h
+**mercredi 29 février à 19h**
 projection + discussion
 JOUR DE SORTIE
 essai documentaire de Fabien Fischer (2011/DVCPROHD/54mn)
@@ -630,7 +625,7 @@ leur premier jour de sortie de la prison en le dessinant sur une feuille
 calque transparente. Des récits de projection du réel à venir, un regard
 sur le dehors du dedans et le poids du dehors sur l'enfermement.
 
-samedi 25 février à 19h
+**samedi 25 février à 19h**
 SUB-CNT 38 présente:
 le corps du métier (52 mn)
 
@@ -651,17 +646,17 @@ démarche engagée qui révolutionnera peut-être l'habitat de demain.
 
 avec la présence de différents acteurs et actrices de ce chantier.
 
-samedi 4 février 2012 à 14h
+**samedi 4 février 2012 à 14h**
 Le collectif Dalidark vous invite au Local Autogéré pour une après-midi en non-mixité femmes/gouines/trans pour écouter de la musique de meufs, boire du thé (ou des bières) et manger des muffins.
 
-Samedi 28 janvier à 16h
+**Samedi 28 janvier à 16h**
 Invitation
 La Luttine (Lyon)
 Le local invite en ce début d'année l'espace associatif autogéré La Luttine.
 Pour rencontrer le collectif, passez nous voir à partir de 16h.
 Il y a aura de la musique, des projs, des discussions, des boissons ... Sortie d'un zine et d'une K7 tout spécialement pour l'occasion.
 
-Dimanche 22 janvier à 19h
+**Dimanche 22 janvier à 19h**
 Ciné-club
 Wassup Rockers de Larry Clark
 Los Angeles, des punks chicanos s'invitent à Beverly Hills pour skater et casser les frontières ...
