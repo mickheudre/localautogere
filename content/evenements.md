@@ -28,6 +28,12 @@ Concert de Special Friend (indie) et Docks (slowcore)
 apéro & petite bouffe vegan  
 entrée à prix libre
 
+**Mardi 15 octobre** 
+Apéro-présentation des Editions Les Grillages, maison d'édition indépendante et pirate.
+Discussion autour des question d'auto-édition, de traduction et de l'accessibilité de textes queer. Comment transmettre nos luttes, nos mémoires, comment les diffuser, les conserver ? Quel rapport avec la légalité, avec internet, avec la lecture à voix haute ? On pourrait aussi parler d'outils d'auto-édition, à relier avec des pratiques déjà présentes à Grenoble ou à développer.
+Petite bouffe prévue et boissons sans alcool.
+À 19h
+
 **Mercredi 15 mai**  
 Présentation du livre "le pari de l'autonomie"
 
