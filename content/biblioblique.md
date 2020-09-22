@@ -3,7 +3,7 @@ titre: Biblioblique
 ---
 
 La biblioblique existe depuis 2004.  
-Bibliothèque gratuite et sans inscription, 
+Bibliothèque gratuite et sancwxcs inscription, 
 il suffit de laisser un contact pour emprunter un livre pendant les ouvertures du Local Autogéré.
 La biblioblique a également inauguré une fanzinothèque grenobloise en 2018, 
 regroupant les archives zines de la scène punk/diy/féministe/squat grenobloise (consultation sur place).

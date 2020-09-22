@@ -1,6 +1,6 @@
 <template>
     <div class="mt-16">
-        <h1 class="font-brand text-4xl uppercase"> {{ evenements.titre }} </h1>
+        <h2> {{ evenements.titre }} </h2>
         <img class="max-w-xs sm:max-w-md my-10 mx-auto" src="../assets/images/presentation.png">
         <div class="">
             <nuxt-content :document="evenements" class=""/>
@@ -29,11 +29,3 @@ export default {
   }
 }
 </script>
-
-<style>
-h2 {
-  @apply font-brand text-4xl sticky bg-white;
-  top: 64px;
-}
-
-</style>

@@ -84,6 +84,7 @@
   <div class="container mx-auto max-w-screen-md">
     <nuxt />
   </div>
+  <a id="back-to-top" v-if="$route.path !== '/'" @click="backToTop" class="fixed bottom-0 mb-24 -mr-4 right-0 transform rotate-90 ">← Haut de la page</a>
 </div>
 </template>
 
@@ -97,7 +98,14 @@ export default {
   methods: {
     showMenu() {
       this.menuVisible = !this.menuVisible;
-    }
+    },
+     backToTop: function() {
+    window.scroll({
+    top: 0,
+    left: 0,
+    behavior: 'smooth'
+  })
+     }
   }
 }
 </script>
