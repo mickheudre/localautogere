@@ -5,12 +5,6 @@ published: true
 
 ## 2020
 
-**Samedi 21 novembre**  
-Présentation du livre Lettres d’insurgé/e/s de Fredy Perlman, Bus Stop press, 2019  
-en présence de l'éditeur/traducteur  
-apéro & petite bouffe vegan  
-entrée à prix libre  
-
 **Samedi 22 février 20h00**  
 Concert de SEB and the rhâââ dicks (one man punk rock band de Lyon).  
 apéro & petite bouffe vegan  
