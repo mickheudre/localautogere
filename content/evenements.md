@@ -3,6 +3,13 @@ titre: Evénements
 published: true
 ---
 
+## 2021
+
+**Samedi 6 février 15h00**  
+Vernissage Une pierre trois coups des éditions Rage / éditions Raté / rip* 
+Affiches, poésie, peinture
+
+
 ## 2020
 
 **Samedi 22 février 20h00**  
