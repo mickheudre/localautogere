@@ -5,6 +5,9 @@ published: true
 
 ## 2021
 
+**Vendredi 21 mai 17h30**  
+Sortie du fanzine littéraire Cumulovolcan
+
 **Samedi 6 février 15h00**  
 Vernissage Une pierre trois coups des éditions Rage / éditions Raté / rip* 
 Affiches, poésie, peinture
