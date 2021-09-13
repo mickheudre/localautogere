@@ -5,7 +5,7 @@ published: true
 
 ## 2021
 
-**Samedi 24 septembre**  
+**Samedi 24 septembre 19h00**  
 Présentation et discussion autour de Lettres d'insurgé.e.s avec Bus Stop Press
 
 **Vendredi 21 mai 17h30**  
