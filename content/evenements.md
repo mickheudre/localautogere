@@ -5,6 +5,9 @@ published: true
 
 ## 2021
 
+**Samedi 24 septembre**  
+Présentation et discussion autour de Lettres d'insurgé.e.s avec Bus Stop Press
+
 **Vendredi 21 mai 17h30**  
 Sortie du fanzine littéraire Cumulovolcan
 
