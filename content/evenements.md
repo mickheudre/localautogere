@@ -5,11 +5,14 @@ published: true
 
 ## 2021
 
+**Jeudi 21 octobre 19h00**  
+Présentation et discussion autour de la brochure _Ma randonnée sans balise_
+
 **Samedi 24 septembre 19h00**  
-Présentation et discussion autour de Lettres d'insurgé.e.s avec Bus Stop Press
+Présentation et discussion autour de _Lettres d'insurgé.e.s_ avec Bus Stop Press
 
 **Vendredi 21 mai 17h30**  
-Sortie du fanzine littéraire Cumulovolcan
+Sortie du fanzine littéraire _Cumulovolcan_
 
 **Samedi 6 février 15h00**  
 Vernissage Une pierre trois coups des éditions Rage / éditions Raté / rip* 
