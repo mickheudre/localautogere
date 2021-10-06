@@ -6,7 +6,7 @@ published: true
 ## 2021
 
 **Jeudi 21 octobre 19h00**  
-Présentation et discussion autour de la brochure _Ma randonnée sans balise_
+Présentation/discussion autour de la brochure _Ma randonnée sans balise_ 
 
 **Samedi 24 septembre 19h00**  
 Présentation et discussion autour de _Lettres d'insurgé.e.s_ avec Bus Stop Press
