@@ -7,6 +7,18 @@ published: true
 
 **Jeudi 21 octobre 19h00**  
 Présentation/discussion autour de la brochure _Ma randonnée sans balise_ 
+_Ma randonnée sans balise_ n'est pas tant un argumentaire ficelé qu'un chemin dans
+le monde des idées, des contraintes, des envies, de la domination ... L'auteur a
+voulu incarner ses propos en parlant à la première personne, mais cette brochure est
+une invitation à se poser des questions, à soi, à nous, à nos proches et nos
+complices. Une invitation à sortir des autoroutes de la pensée, qui ne laisse rien
+exister d'autre que les positions de PMO ou celles de Paul B.Preciado. A quitter le
+cul-de-sac du débat pro/anti-PMA. Et une invitation à explorer gaiement cette zone
+d'ombre qu'est la jonction entre anti-patriarcat et anti-technologie.
+Cette soirée du 21 octobre, ce sera l'occasion de creuser, d'éclairer et démeler
+ensemble ce qu'on veut voir pousser à ce croisement. On vous propose de faire des
+aller-retour entre des extraits de la brochure, et des moment d'échange. Si tu l'as
+lu avant, c'est cool. Sinon pas de stress, on la découvrira sur place.
 
 **Samedi 24 septembre 19h00**  
 Présentation et discussion autour de _Lettres d'insurgé.e.s_ avec Bus Stop Press
