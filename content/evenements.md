@@ -7,6 +7,7 @@ published: true
 
 **Jeudi 21 octobre 19h00**  
 Présentation/discussion autour de la brochure _Ma randonnée sans balise_ 
+
 _Ma randonnée sans balise_ n'est pas tant un argumentaire ficelé qu'un chemin dans
 le monde des idées, des contraintes, des envies, de la domination ... L'auteur a
 voulu incarner ses propos en parlant à la première personne, mais cette brochure est
