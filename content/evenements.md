@@ -5,6 +5,11 @@ published: true
 
 ## 2021
 
+
+**Jeudi 18 novembre 19h00**  
+Apéro de sortie du _Gragenda_ et du _Calendrier du Lokal_
+Le _Gragenda 2022_ est fabriqué en soutien à Duplidocus et au CDP38
+
 **Jeudi 21 octobre 19h00**  
 Présentation/discussion autour de la brochure _Ma randonnée sans balise_ 
 
