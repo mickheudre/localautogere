@@ -12,7 +12,7 @@
   <div class="lg:fixed lg:right-0 lg:w-48 lg:inset-y-0 lg:flex lg:flex-col justify-center my-8 mx-16  lg:mr-24">
     <div class="border-l-2 pl-4 border-black">
       <h6 class="font-serif font-bold text-2xl mb-0">Actualités</h6>
-      <nuxt-content :document="news[0]" class="my-0" />
+      <p class="my-0" >{{ doc.news }}</p>
     </div>
   </div>
   </div>
