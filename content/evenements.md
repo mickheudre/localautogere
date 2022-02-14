@@ -3,6 +3,12 @@ titre: Evénements
 published: true
 ---
 
+## 2022
+
+**Jeudi 24 février 18h00**  
+Expo photo et lancement de la réédition du livre _La vallée-La brèche_
+
+
 ## 2021
 
 
