@@ -11,7 +11,7 @@
 <script>
 export default {
   async asyncData({ $content, params }) {
-    const evenements = await $content("biblioblique").fetch();
+    const evenements = await $content("biblioblique et fanzinothèque grenobloise").fetch();
     return { evenements };
   },
   head() {
