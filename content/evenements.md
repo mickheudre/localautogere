@@ -5,6 +5,17 @@ published: true
 
 ## 2022
 
+**Vendredi 30 mars 18h30**  
+Sortie du fanzine littéraire _Du Limes_
+près / au bord / au delà du "limes", ce chemin qui longe l'espace inconnu
+L’entrapercevoir, c’est laisser place à tout doute, toute projection, toute spéculation. 
+Le rapport est étroit entre ce que l’on fuit et ce que l’on veut rejoindre.
+
+**Mercredi 28 mars 20h30**  
+Projection de _Sisters With Transistors_
+Raconté par Laurie Anderson et nourri de formidables archives, un hymne aux pionnières de la musique électronique et aux horizons sonores qu’elles ont ouvert depuis les années 1930.
+
+
 **Jeudi 24 février 18h00**  
 Expo photo et lancement de la réédition du livre _La vallée-La brèche_
 
