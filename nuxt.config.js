@@ -52,6 +52,7 @@ export default {
     '@nuxt/content',
     'nuxt-purgecss',
     'nuxt-webfontloader',
+    '@nuxtjs/axios'
   ],
   /*
   ** Build configuration
