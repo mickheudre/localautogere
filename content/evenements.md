@@ -5,6 +5,10 @@ published: true
 
 ## 2022
 
+**Mercredi 22 juin 19h00**
+Apéro pour la sortie d'un ovni sérigraphié
+d'après _la Danse des Morts_ de Holbein le jeune (graveur allemand du XVe siècle)
+
 **Vendredi 30 mars 18h30**  
 Sortie du fanzine littéraire _Du Limes_
 près / au bord / au delà du "limes", ce chemin qui longe l'espace inconnu
