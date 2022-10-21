@@ -81,7 +81,7 @@
   </nav>
   </section>
 </header> -->
-  <div class="container mx-auto max-w-screen-md">
+  <div class="container mx-auto h-full max-w-screen-md">
     <nuxt />
   </div>
   <a id="back-to-top" v-if="$route.path !== '/'" @click="backToTop" class="fixed bottom-0 mb-24 -mr-4 right-0 transform rotate-90 ">← Haut de la page</a>

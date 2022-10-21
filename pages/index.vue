@@ -1,11 +1,13 @@
 <template>
 <div class="flex flex-col justify-center items-center">
+  <div class="lg:mt-40 flex flex-col justify-center items-center">
 <div class="my-4">
   <h1 class="font-brand max-w-xs text-5xl uppercase leading-tight text-center" > {{ doc.titre }}</h1>
   <h2 class="font-serif text-xl text-center"> {{ doc.soustitre}} </h2>
   </div>
   <img class="my-6 md:my-6 max-w-xs sm:max-w-md" :src="image" alt="" />
   <h3 class="font-serif max-w-xs my-2 px-10 py-2 bg-black text-white uppercase text-center"> {{ doc.horaires }} </h3>
+  </div>
   <div class="md:fixed md:left-0 md:inset-y-0 flex flex-col justify-center md:mr-12">
     <h3 class="md:transform md:-rotate-90  md:left-0 md:-ml-8 font-serif text-center"> {{ doc.adresse }} </h3>
     </div>
@@ -16,10 +18,10 @@
         <iframe 
           src="https://local-events-mickheudre.vercel.app/"
           style="top: 0;left: 0;width: 100%;height: 100%;"
+          loading="lazy"
         ></iframe>
       </div>
     </div>
-  </div>
   </div>
   </div>
 </template>
