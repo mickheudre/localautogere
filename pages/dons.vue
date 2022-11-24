@@ -1,6 +1,6 @@
 <template>
-  <div class="my-16">
-    <h2>{{ evenements.titre }}</h2>
+  <div class="pt-16 md:pt-32 px-12 md:px-0">
+    <h2 class="font-brand text-4xl sticky bg-white top-64">{{ evenements.titre }}</h2>
     <img class="max-w-xs sm:max-w-md my-10 mx-auto" src="../assets/images/local.png">
     <div>
       <nuxt-content :document="evenements" class />

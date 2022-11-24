@@ -6,7 +6,7 @@ export default {
   ** Headers of the page
   */
   head: {
-    title: process.env.npm_package_name || '',
+    title: 'Le local Autogere',
     htmlAttrs: {
       lang: 'fr',
     },

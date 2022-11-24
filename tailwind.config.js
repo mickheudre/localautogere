@@ -15,6 +15,11 @@ module.exports = {
       'serif': ['Crimson Text'],
       'brand':['lack line'],
       'sans': ['Source Sans Pro'],
+    },
+    extend: {
+      screens: {
+        'desktop': '1400px',
+      }
     }
   },
   variants: {},

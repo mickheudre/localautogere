@@ -1,7 +1,6 @@
 <template>
     <div class="pt-16 md:pt-32 px-4 md:px-0">
-        <img class="max-w-xs sm:max-w-md my-12 md:my-24 mx-auto" src="../assets/images/presentation.png">
-        <div class="">
+        <div id="content" class="">
             <nuxt-content :document="evenements" class=""/>
         </div>
     </div>
@@ -10,21 +9,29 @@
 <script>
 export default {
     async asyncData( {$content, params } ) {
-        const evenements = await $content('presentation').fetch()
+        const evenements = await $content('evenements').limit(1).fetch()
     return { evenements }
   },
-  head() {
+    head() {
     return {
-      title: `Présentation`,
+      title: `Evénements`,
       meta: [
         {
           hid: "description",
           name: "description",
           content:
-            "Depuis 2005, le Local Autogéré est un infoshop, lieu d'activité, de rencontre, de lutte, d'échange et de diffusion d'information"
+            "Rencontres, concerts, expositions... Le local autogéré accueille différents événements tout au long de l'année."
         }
       ]
     };
-  }
+  },
 }
 </script>
+
+<style>
+/* .nuxt-content  h2{
+  @apply font-brand text-4xl sticky bg-white;
+  top: 86px;
+} */
+
+</style>

@@ -1,7 +1,7 @@
 <template>
-  <div class="mt-16">
-    <h2>{{ evenements.titre }}</h2>
-    <img class="max-w-xs sm:max-w-md my-10 mx-auto" src="../assets/images/biblioblique.png">
+  <div class="pt-16 md:pt-32 px-4">
+    <h2 class="font-brand text-4xl sticky bg-white top-64"> {{ evenements.titre }}</h2>
+    <img class="max-w-xs sm:max-w-md my-12 md:my-24 mx-auto" src="../assets/images/biblioblique.png">
     <div>
       <nuxt-content :document="evenements" class />
     </div>
